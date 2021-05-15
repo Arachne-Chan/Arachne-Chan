@@ -34,7 +34,6 @@
 ### Contacts
 
 - E-mail: NeroHaziel@outlook.com
-- Twitter https://twitter.com/SQLInjection__
 - Instagram: https://www.instagram.com/hepohb/
 - LinkedIn: https://linkedin.com/in/nero-haziel-0492271ab
 - Github: https://github.com/Arachne-Chan (Aren't You already here?)
