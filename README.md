@@ -30,9 +30,9 @@
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
 ### Way Down
-So I won't stop dying, won't stop lying
-If you want, I'll keep on crying
-Did you get what you deserve?
+So I won't stop dying, won't stop lying<br />
+If you want, I'll keep on crying<br />
+Did you get what you deserve?<br />
 Is this what you always want me for?
 
 ### Contacts
