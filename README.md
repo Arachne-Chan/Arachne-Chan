@@ -29,7 +29,11 @@
   - 🕹 Play Videogames
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
-### キラークイーンは、 すでに ドアノブに 触っている。 
+### Way Down
+So I won't stop dying, won't stop lying
+If you want, I'll keep on crying
+Did you get what you deserve?
+Is this what you always want me for?
 
 ### Contacts
 
