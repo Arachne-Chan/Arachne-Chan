@@ -7,7 +7,7 @@
   - Country: Brazil
   - Birthday: 2003/01/23
   - Favorite Food: Ice Cream
-  - Height: 1,60m (5’3”) of pure gorgeousness
+  - Height: 1,54m (5’3”) of pure gorgeousness
   - Favorite Band: Pink Floyd || My Chemical Romance || Queen
   - Favorite Music Genre: Classical || Progressive Rock || Emocore
   - Favorite Singer: David Bowie || Michael Jackson || Tomoko Kawase
@@ -21,6 +21,7 @@
 
 ### Hobbies
   - 📖 Read
+  - 💋 Porn
   - 📚 Study
   - 💻 Coding
   - 🍨 Ice Cream
