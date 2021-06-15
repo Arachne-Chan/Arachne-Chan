@@ -7,7 +7,7 @@
   - Country: Brazil
   - Birthday: 2003/01/23
   - Favorite Food: Ice Cream
-  - Height: 1,54m (5’3”) of pure gorgeousness
+  - Height: 1,34m (5’3”) of pure gorgeousness
   - Favorite Band: Pink Floyd || My Chemical Romance || Queen
   - Favorite Music Genre: Classical || Progressive Rock || Emocore
   - Favorite Singer: David Bowie || Michael Jackson || Tomoko Kawase
@@ -40,7 +40,6 @@ Is this what You always want me for?
 
 - E-mail: NeroHaziel@outlook.com
 - Instagram: https://www.instagram.com/hepohb/
-- LinkedIn: https://linkedin.com/in/nero-haziel-0492271ab
 - Github: https://github.com/Arachne-Chan (Aren't You already here?)
 <!-- Twitter: https://twitter.com/HepoHB
 - Pinterest: https://br.pinterest.com/HEPOHB
