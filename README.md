@@ -20,7 +20,6 @@
   - People I really respect: Leonardo di Ser Piero da Vinci || Nero Claudius Caezar Augustus Germanicus || Myself
 
 ### Hobbies
-  - 💋 Porn
   - 📖 Read
   - 📚 Study
   - 💻 Coding
