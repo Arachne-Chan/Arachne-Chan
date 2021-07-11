@@ -5,6 +5,7 @@
 ### What You would like to know (Or not) about me:
 
   - Country: Brazil
+  - Personality: INTJ
   - Birthday: 2003/01/23
   - Favorite Food: Ice Cream
   - Height: 1,57m (5'2") of pure gorgeousness
@@ -29,16 +30,13 @@
   - 🕹 Play Videogames
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
-### Way Down
-So I won't stop dying, won't stop lying<br />
-If You want, I'll keep on crying<br />
-Did You get what you deserve?<br />
-Is this what You always want me for?
+### I missed the part where that's my problem
 
 ### Contacts
 
 - E-mail: NeroHaziel@outlook.com
 - Instagram: https://www.instagram.com/hepohb/
+- Twitch: https://www.twitch.tv/sqlinjection___
 - Github: https://github.com/Arachne-Chan (Aren't You already here?)
 <!-- Twitter: https://twitter.com/HepoHB
 - Pinterest: https://br.pinterest.com/HEPOHB
