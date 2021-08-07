@@ -30,7 +30,7 @@
   - 🕹 Play Videogames
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
-### I missed the part where that's my problem
+### So long, not goodnight
 
 ### Contacts
 
