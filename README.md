@@ -8,7 +8,7 @@
   - Personality: INTJ
   - Birthday: 2003/01/23
   - Favorite Food: Ice Cream
-  - Height: 1,54m (5'1") of pure gorgeousness
+  - Height: 1,54m (5'1") of pure gorgeousness (I am not a loli, though)
   - Favorite Band: Pink Floyd || My Chemical Romance || Queen
   - Favorite Music Genre: Classical || Progressive Rock || Emocore
   - Favorite Singer: David Bowie || Michael Jackson || Tomoko Kawase
