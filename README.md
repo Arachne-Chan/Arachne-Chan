@@ -36,9 +36,9 @@
 
 - E-mail: NeroHaziel@outlook.com
 - Linktree: https://linktr.ee/SQLInjection__
-- Instagram: https://www.instagram.com/sqlinjection__
 - Twitch: https://www.twitch.tv/sqlinjection___
-- Twitter: https://twitter.com/SQLInjection__ **🔞 ALERT**
+- Instagram: https://www.instagram.com/sqlinjection__
+- Twitter: https://twitter.com/SQLInjection__ **🔞 ALERT 🔞**
 - MyAnimeList: https://myanimelist.net/profile/Darling_Moon
 - Github: https://github.com/Darling-Moon (Aren't You already here?)
 <!-- Pinterest: https://br.pinterest.com/HEPOHB
