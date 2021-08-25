@@ -36,13 +36,13 @@
 
 - E-mail: NeroHaziel@outlook.com
 - Linktree: https://linktr.ee/SQLInjection__
-- Instagram: https://www.instagram.com/hepohb/
+- Instagram: https://www.instagram.com/sqlinjection__
 - Twitch: https://www.twitch.tv/sqlinjection___
-- Github: https://github.com/Arachne-Chan (Aren't You already here?)
-<!-- Twitter: https://twitter.com/HepoHB
-- Pinterest: https://br.pinterest.com/HEPOHB
+- Twitter: https://twitter.com/SQLInjection__ **🔞 ALERT**
+- MyAnimeList: https://myanimelist.net/profile/Darling_Moon
+- Github: https://github.com/Darling-Moon (Aren't You already here?)
+<!-- Pinterest: https://br.pinterest.com/HEPOHB
 - Reddit: https://www.reddit.com/user/HepoB -->
-<!-- MyAnimeList: https://myanimelist.net/profile/Darling_Moon -->
 
 
 
