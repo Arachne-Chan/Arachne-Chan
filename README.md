@@ -37,7 +37,7 @@
 - E-mail: NeroHaziel@outlook.com
 - Linktree: https://linktr.ee/DarlingMoon__
 - Twitch: https://www.twitch.tv/darlingmoon__
-- Instagram: https://www.instagram.com/\__DarlingMoon/
+- Instagram: https://www.instagram.com/__DarlingMoon
 - MyAnimeList: https://myanimelist.net/profile/Darling_Moon
 - Github: https://github.com/Darling-Moon (Aren't You already here?)
 <!-- Pinterest: https://br.pinterest.com/HEPOHB
