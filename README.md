@@ -4,21 +4,22 @@
 
 ### What You would like to know (Or not) about me:
 
-  - Country: Brazil
-  - Personality: INTJ
-  - Birthday: 2003/01/23
-  - Favorite Food: Ice Cream
-  - Favorite Band: Pink Floyd || My Chemical Romance || Queen
-  - Favorite Music Genre: Classical || Progressive Rock || Emocore
-  - Favorite Singer: David Bowie || Michael Jackson || Tomoko Kawase
-  - Height: 1,54m (5'1") of pure gorgeousness (I am not a loli, though)
-  - Favorite Book: The Screwtape Letters || A Clockwork Orange || Faust
-  - Favorite Videogame: Minecraft || Civilization VI || Sekiro: Shadow dies Twice
-  - Favorite Movie: A Clockwork Orange || The Godfather || The Lord of the Rings
-  - Favorite Anime: Shingeki no Kyojin || Overlord || Fate Stay/Night: Unlimited Blade Works
-  - Favorite Composer: Piotr Ilitch Tchaikovski || Wolfgang Amadeus Mozart || Frédéric Chopin
-  - Spoken languages: Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
-  - People I really respect: Leonardo di Ser Piero da Vinci || Nero Claudius Caezar Augustus Germanicus || Myself
+  - Country: 🇧🇷 Brazil
+  - Personality: 🧠 INTJ
+  - Pronouns: ♀️ She/Her/It
+  - Birthday: 🎂 2003/01/23
+  - Favorite Food: 🍨 Ice Cream
+  - Favorite Band: 🎹 Pink Floyd || My Chemical Romance || Queen
+  - Favorite Music Genre: 🎼 Classical || Progressive Rock || Emocore
+  - Favorite Singer: 🎤 David Bowie || Michael Jackson || Tomoko Kawase
+  - Height: 👠 1,54m (5'1") of pure gorgeousness (I am not a loli, though)
+  - Favorite Book: 📚 The Screwtape Letters || A Clockwork Orange || Faust
+  - Favorite Videogame: 🕹️ Minecraft || Civilization VI || Sekiro: Shadow dies Twice
+  - Favorite Movie: 🍿 A Clockwork Orange || The Godfather || The Lord of the Rings
+  - Favorite Anime: 🗻 Shingeki no Kyojin || Overlord || Fate Stay/Night: Unlimited Blade Works
+  - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski || Wolfgang Amadeus Mozart || Frédéric Chopin
+  - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
+  - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Nero Claudius Caezar Augustus Germanicus || Myself
 
 ### Hobbies
   - 📖 Read
