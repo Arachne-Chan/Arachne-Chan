@@ -31,18 +31,13 @@
   - 🕹 Play Videogames
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
-### So long, not goodnight
-<!--
 ### Contacts
 
 - E-mail: NeroHaziel@outlook.com
-- Linktree: https://linktr.ee/DarlingMoon__
+- Linktree: https://linktr.ee/HepoHB
 - Twitch: https://www.twitch.tv/darlingmoon__
-- Instagram: https://www.instagram.com/__DarlingMoon
-- MyAnimeList: https://myanimelist.net/profile/Darling_Moon
-- Github: https://github.com/Darling-Moon (Aren't You already here?)
- Pinterest: https://br.pinterest.com/HEPOHB
-- Reddit: https://www.reddit.com/user/HepoB -->
+- Instagram: https://www.instagram.com/HepoHB
+- Github: https://github.com/HepoHB (Aren't You already here?)
 
 
 
