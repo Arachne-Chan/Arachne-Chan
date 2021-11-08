@@ -12,8 +12,8 @@
   - Favorite Band: 🎹 Pink Floyd || My Chemical Romance || Queen
   - Favorite Music Genre: 🎼 Classical || Progressive Rock || Emocore
   - Favorite Singer: 🎤 Lady Gaga || Michael Jackson || Tomoko Kawase
-  - Height: 👠 1,50m (4'11") of pure gorgeousness (I am not a loli, though)
   - Favorite Book: 📚 The Screwtape Letters || A Clockwork Orange || Faust
+  - Height: 👠 1,50m (4'11") of pure gorgeousness (I am not a loli, though)
   - Favorite Videogame: 🕹️ Minecraft || Civilization VI || Sekiro: Shadow dies Twice
   - Favorite Movie: 🍿 A Clockwork Orange || The Godfather || The Lord of the Rings
   - Favorite Anime: 🗻 Shingeki no Kyojin || Overlord || Fate Stay/Night: Unlimited Blade Works
