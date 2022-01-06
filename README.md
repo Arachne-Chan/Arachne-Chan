@@ -62,12 +62,10 @@
   
 </details>
 
-[![Bright Burning Shout](https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg)](https://youtu.be/uuZKRK3IYFo "Bright Burning Shout")
-
 <details>
   <summary>Favorite Anime Openings</summary>
   **Fate Last Encore Opening**
-[![Bright Burning Shout](https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg)](https://youtu.be/uuZKRK3IYFo "Bright Burning Shout")
+  <a href="{https://youtu.be/uuZKRK3IYFo}" title="Bright Burning Shout"><img src="{https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg}" alt="Bright Burning Shout" /></a>
   
 </details>
 
