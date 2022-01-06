@@ -91,7 +91,6 @@
   
   ### 3º. To Love-Ru Ending - Lucky Tune
 <a href="https://youtu.be/9ajSoFZ1BfI" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
-[![Lucky Tune]()]( "Lucky Tune")
   
   ### 4º. Death Parade Ending - Last Theater
 <a href="https://youtu.be/fW0Jxf5SuRg" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506333/video_to_markdown/images/youtube--fW0Jxf5SuRg-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Last Theater" /></a>
