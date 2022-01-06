@@ -37,7 +37,8 @@
 
 <details>
   <summary>Polemic Opinions</summary>
-### Did nothing wrong Squad
+
+  ### Did nothing wrong Squad
  - 🩸 Eren
  - 👁️ Lelouch
  - 🦅 Griffith
