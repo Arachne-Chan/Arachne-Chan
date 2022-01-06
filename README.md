@@ -13,15 +13,15 @@
   - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
   - Favorite Music Genre: 🎼 Classical
-  - Favorite Singer: 🎤 Michael Jackson
-  - Favorite Cartoon: 🦄 My Little Pony
+  - Favorite Singer: 🎤 Michael Jac<b>k</b>son
+  - Favorite Cartoon: 🦄 My L<b>i</b>ttle Pony
   - Favorite Movie: 🍿 A Clockwork Orange
-  - Favorite Book: 📚 The Screwtape Letters
+  - Favorite Book: 📚 The <b>S</b>crewtape Letters
   - Favorite Band: 🎹 My Chemical Romance
-  - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
-  - Height: 👠 1,50m (4'11") of pure gorgeousness (I am not a loli, though)
-  - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
-  - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Nero Claudius Caezar Augustus Germanicus || Myself
+  - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>s</b>ki
+  - Height: 👠 1,50m (4'11") of pure gorgeousness (I a<b>m</b> not a loli, though)
+  - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>e</b>se(+) / Italian(±) / Russian(-)
+  - People I really respect: 💖 Leonar<b>d</b>o di Ser Piero d<b>a</b> Vinci || Ne<b>r</b>o C<b>l</b>aud<b>i</b>us Caezar Augustus Germa<b>n</b>icus || Myself (Self-love is <b>G</b>ood)
 
 ## Hobbies
   - 📖 Read
