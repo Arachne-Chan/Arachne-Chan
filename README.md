@@ -67,16 +67,16 @@
 <a href="https://youtu.be/uuZKRK3IYFo" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bright Burning Shout" /></a>
   
 ### 2º. Beastars Opening - Wild Side
-<a href="https://youtu.be/bgo9dJB_icw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505419/video_to_markdown/images/youtube--bgo9dJB_icw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Wild Side" /></a>
+<a href="https://youtu.be/bgo9dJB_icw" title="Wild Side"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505419/video_to_markdown/images/youtube--bgo9dJB_icw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Wild Side" /></a>
   
 ### 3º. Berserk Opening - Tell me Why
-<a href="https://youtu.be/ocQ6PDiP014" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505489/video_to_markdown/images/youtube--ocQ6PDiP014-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tell me Why" /></a>
+<a href="https://youtu.be/ocQ6PDiP014" title="Tell me Why"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505489/video_to_markdown/images/youtube--ocQ6PDiP014-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tell me Why" /></a>
   
 ### 4º. Rozen Maiden Träumend Opening - Seishoujo Ryouiki
-<a href="https://youtu.be/SuAm904-hNA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505816/video_to_markdown/images/youtube--SuAm904-hNA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Seishoujo Ryouiki" /></a>
+<a href="https://youtu.be/SuAm904-hNA" title="Seishoujo Ryouiki"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505816/video_to_markdown/images/youtube--SuAm904-hNA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Seishoujo Ryouiki" /></a>
   
 ### 5º. Attack on Titan Opening - My War
-<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
+<a href="https://youtu.be/Y-eoYLBbZOA" title="My War"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
   
 </details>
 
@@ -84,19 +84,19 @@
  <summary>Favorite Anime Endings</summary>
 
   ### 1º. Fate Last Encore Ending - Tsuki to Hanataba
-<a href="https://youtu.be/xbOeZg7J_Iw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506010/video_to_markdown/images/youtube--xbOeZg7J_Iw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tsuki to Hanataba" /></a>
+<a href="https://youtu.be/xbOeZg7J_Iw" title="Tsuki to Hanataba"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506010/video_to_markdown/images/youtube--xbOeZg7J_Iw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tsuki to Hanataba" /></a>
   
   ### 2º. Overlord Ending - LLL
-<a href="https://youtu.be/ChayFwyFvPk" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506157/video_to_markdown/images/youtube--ChayFwyFvPk-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
+<a href="https://youtu.be/ChayFwyFvPk" title="LLL"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506157/video_to_markdown/images/youtube--ChayFwyFvPk-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
   
   ### 3º. To Love-Ru Ending - Lucky Tune
-<a href="https://youtu.be/9ajSoFZ1BfI" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
+<a href="https://youtu.be/9ajSoFZ1BfI" title="Lucky Tune"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
   
   ### 4º. Death Parade Ending - Last Theater
-<a href="https://youtu.be/fW0Jxf5SuRg" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506333/video_to_markdown/images/youtube--fW0Jxf5SuRg-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Last Theater" /></a>
+<a href="https://youtu.be/fW0Jxf5SuRg" title="Last Theater"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506333/video_to_markdown/images/youtube--fW0Jxf5SuRg-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Last Theater" /></a>
   
   ### 5º. Soul Eater Ending - Bakusou Yumeuta
-<a href="https://youtu.be/6W1ajuerl6o" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506407/video_to_markdown/images/youtube--6W1ajuerl6o-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bakusou Yumeuta" /></a>
+<a href="https://youtu.be/6W1ajuerl6o" title="Bakusou Yumeuta"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506407/video_to_markdown/images/youtube--6W1ajuerl6o-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bakusou Yumeuta" /></a>
   
 </details>
 
@@ -104,12 +104,12 @@
 <details>
  <summary>Other Music</summary>
 
-  ### 1º. Fate Last Encore Ending - Tsuki to Hanataba
-<a href="https://youtu.be/xbOeZg7J_Iw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506786/video_to_markdown/images/youtube--z7rxl5KsPjs-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tsuki to Hanataba" /></a>
-  [![Devil's Trill Sonata]()](https://youtu.be/z7rxl5KsPjs "Devil's Trill Sonata")
+  ### 1º. Requiem in D Minor - Wolfgang Amadeus Mozart
+<a href="https://youtu.be/sPlhKP0nZII" title="Requiem in D Minor"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506842/video_to_markdown/images/youtube--sPlhKP0nZII-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Requiem in D Minor" /></a>
   
   ### 2º. Overlord Ending - LLL
-<a href="https://youtu.be/ChayFwyFvPk" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506157/video_to_markdown/images/youtube--ChayFwyFvPk-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
+<a href="https://youtu.be/ChayFwyFvPk" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506960/video_to_markdown/images/youtube--QxHkLdQy5f0-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
+[![Waltz of the Flowers]()](https://youtu.be/QxHkLdQy5f0 "Waltz of the Flowers")
   
   ### 3º. To Love-Ru Ending - Lucky Tune
 <a href="https://youtu.be/9ajSoFZ1BfI" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
