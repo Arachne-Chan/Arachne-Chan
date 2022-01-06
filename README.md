@@ -40,8 +40,8 @@
 
   ### Did nothing wrong Squad
  - 🩸 Eren
- - 👁️ Lelouch
  - 🦅 Griffith
+ - 👁️ Lelouch
  - 📓 Raito Yagami
  - 💥 Akemi Homura
  - 🇺🇸 Funny Valentine
