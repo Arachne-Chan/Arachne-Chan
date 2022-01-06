@@ -13,15 +13,15 @@
   - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
   - Favorite Music Genre: 🎼 Classical
-  - Favorite Singer: 🎤 Michael Jac<b>k</b>son
-  - Favorite Cartoon: 🦄 My L<b>i</b>ttle Pony
+  - Favorite Singer: 🎤 Michael Jac<b>K</b>son
+  - Favorite Cartoon: 🦄 My L<b>I</b>ttle Pony
   - Favorite Movie: 🍿 A Clockwork Orange
   - Favorite Book: 📚 The <b>S</b>crewtape Letters
   - Favorite Band: 🎹 My Chemical Romance
-  - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>s</b>ki
-  - Height: 👠 1,50m (4'11") of pure gorgeousness (I a<b>m</b> not a loli, though)
-  - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>e</b>se(+) / Italian(±) / Russian(-)
-  - People I really respect: 💖 Leonar<b>d</b>o di Ser Piero d<b>a</b> Vinci || Ne<b>r</b>o C<b>l</b>aud<b>i</b>us Caezar Augustus Germa<b>n</b>icus || Myself (Self-love is <b>G</b>ood)
+  - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
+  - Height: 👠 1,50m (4'11") of pure gorgeousness (I a<b>M</b> not a loli, though)
+  - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
+  - People I really respect: 💖 Leonar<b>D</b>o di Ser Piero d<b>A</b> Vinci || Ne<b>R</b>o C<b>L</b>aud<b>I</b>us Caezar Augustus Germa<b>N</b>icus || Myself (Self-love is <b>G</b>ood)
 
 ## Hobbies
   - 📖 Read
