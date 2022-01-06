@@ -8,18 +8,18 @@
   - Personality: 🧠 INTJ
   - Pronouns: ♀️ She/Her/It
   - Birthday: 🎂 2003/01/23
-  - Preference: 🏳️‍🌈 Omnisexual
   - Favorite Princess: 👑 Ariel
+  - Preference: 🏳️‍🌈 Omnisexual
   - Favorite Food: 🍨 Ice Cream
-  - Favorite Anime: 🗻 To Love-Ru
   - Astrological sign: ♒ Aquarius
+  - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
   - Favorite Music Genre: 🎼 Classical
-  - Favorite Cartoon: 🦄 My Little Pony
   - Favorite Singer: 🎤 Michael Jackson
+  - Favorite Cartoon: 🦄 My Little Pony
   - Favorite Movie: 🍿 A Clockwork Orange
-  - Favorite Band: 🎹 My Chemical Romance
   - Favorite Book: 📚 The Screwtape Letters
+  - Favorite Band: 🎹 My Chemical Romance
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
   - Height: 👠 1,50m (4'11") of pure gorgeousness (I am not a loli, though)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
