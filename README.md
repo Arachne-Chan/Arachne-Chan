@@ -1,8 +1,6 @@
 # 🌹 Ṋ̴̻̤̟̮͛̋͐̊̄́̊͋͠e̶̛̲̍̏̈́̇̇́r̴̮̟̯̯̰͊ǫ̷͙̔͒̋ ̶͍̝̬̫͕̽͆́Ȟ̶̥̄͆̈́͂ạ̵̮͉̈́̔͐̐̒̆̓̀̾z̴̥͖͖͍̘̥̃͊̕ȉ̶̬̩̲̲̳̉ͅe̵̟̯͔͈͚͂͑̋͘͜l̶͈̩̫͖̉ 🌹
 
-## All roads lead to Rome
-
-### What You would like to know (Or not) about me:
+## What You would like to know (Or not) about me:
 
   - Country: 🇧🇷 Brazil
   - Personality: 🧠 INTJ
@@ -25,7 +23,7 @@
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
   - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Nero Claudius Caezar Augustus Germanicus || Myself
 
-### Hobbies
+## Hobbies
   - 📖 Read
   - 📚 Study
   - 💻 Coding
@@ -35,16 +33,16 @@
   - 🕹 Play Videogames
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
-### Contacts
+## Contacts
 
 - E-mail: HazielNero@gmail.com
 - E-mail: NeroHaziel@outlook.com
 - Github: https://github.com/HepoHB (Aren't You already here?)
 
-### Random Info
+## Random Info
 
 <details>
-  <summary>Polemic Opinions</summary>
+ <summary>Polemic Opinions</summary>
   
 ### Did nothing wrong Squad
  - 🩸 Eren
@@ -63,9 +61,23 @@
 </details>
 
 <details>
-  <summary>Favorite Anime Openings</summary>
-  **Fate Last Encore Opening**
- <a href="https://youtu.be/uuZKRK3IYFo" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bright Burning Shout" /></a>
+ <summary>Favorite Anime Openings</summary>
+  
+### Fate Last Encore Opening - Bright Burning Shout
+<a href="https://youtu.be/uuZKRK3IYFo" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bright Burning Shout" /></a>
+  
+### Beastars Opening - Wild Side
+<a href="https://youtu.be/bgo9dJB_icw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505419/video_to_markdown/images/youtube--bgo9dJB_icw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Wild Side" /></a>
+  
+### Berserk Opening - Tell me Why
+<a href="https://youtu.be/ocQ6PDiP014" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505489/video_to_markdown/images/youtube--ocQ6PDiP014-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tell me Why" /></a>
+  
+### Fresh! Pretty Cure Opening - Let's Fresh! Pretty Cure
+<a href="https://youtu.be/GD7v2KQ4k0Y" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505572/video_to_markdown/images/youtube--GD7v2KQ4k0Y-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Let's Fresh! Pretty Cure" /></a>
+  
+### Attack on Titan Opening - My War
+<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
+  [![My War]()]( "")
   
 </details>
 
