@@ -86,21 +86,18 @@
   ### 1º. Fate Last Encore Ending - Tsuki to Hanataba
 <a href="https://youtu.be/xbOeZg7J_Iw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506010/video_to_markdown/images/youtube--xbOeZg7J_Iw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tsuki to Hanataba" /></a>
   
-  ### 2º. Attack on Titan Ending - My War
-<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
-  [![My War]()]( "")
+  ### 2º. Overlord Ending - LLL
+<a href="https://youtu.be/ChayFwyFvPk" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506157/video_to_markdown/images/youtube--ChayFwyFvPk-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
   
-  ### 3º. Attack on Titan Ending - My War
-<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
-  [![My War]()]( "")
+  ### 3º. To Love-Ru Ending - Lucky Tune
+<a href="https://youtu.be/9ajSoFZ1BfI" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
+[![Lucky Tune]()]( "Lucky Tune")
   
-  ### 4º. Attack on Titan Ending - My War
-<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
-  [![My War]()]( "")
+  ### 4º. Death Parade Ending - Last Theater
+<a href="https://youtu.be/fW0Jxf5SuRg" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506333/video_to_markdown/images/youtube--fW0Jxf5SuRg-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Last Theater" /></a>
   
-  ### 5º. Attack on Titan Ending - My War
-<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
-  [![My War]()]( "")
+  ### 5º. Soul Eater Ending - Bakusou Yumeuta
+<a href="https://youtu.be/6W1ajuerl6o" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506407/video_to_markdown/images/youtube--6W1ajuerl6o-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bakusou Yumeuta" /></a>
   
 </details>
 
