@@ -50,7 +50,7 @@
 - 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika
 - 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei
 - 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others
-- 🇯 Joseph > Josuke >> Jotaro > Jonathan >>> Giorno >>> Jolyne >>> Johny >>> Josuke II
+- ⭐ Joseph > Josuke >> Jotaro > Jonathan >>> Giorno >>> Jolyne >>> Johny >>> Josuke II
   
 </details>
 
