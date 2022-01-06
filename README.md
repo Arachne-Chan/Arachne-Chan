@@ -101,6 +101,28 @@
 </details>
 
 
+<details>
+ <summary>Other Music</summary>
+
+  ### 1º. Fate Last Encore Ending - Tsuki to Hanataba
+<a href="https://youtu.be/xbOeZg7J_Iw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506786/video_to_markdown/images/youtube--z7rxl5KsPjs-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tsuki to Hanataba" /></a>
+  [![Devil's Trill Sonata]()](https://youtu.be/z7rxl5KsPjs "Devil's Trill Sonata")
+  
+  ### 2º. Overlord Ending - LLL
+<a href="https://youtu.be/ChayFwyFvPk" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506157/video_to_markdown/images/youtube--ChayFwyFvPk-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
+  
+  ### 3º. To Love-Ru Ending - Lucky Tune
+<a href="https://youtu.be/9ajSoFZ1BfI" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
+  
+  ### 4º. Death Parade Ending - Last Theater
+<a href="https://youtu.be/fW0Jxf5SuRg" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506333/video_to_markdown/images/youtube--fW0Jxf5SuRg-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Last Theater" /></a>
+  
+  ### 5º. Soul Eater Ending - Bakusou Yumeuta
+<a href="https://youtu.be/6W1ajuerl6o" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506407/video_to_markdown/images/youtube--6W1ajuerl6o-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bakusou Yumeuta" /></a>
+  
+</details>
+
+
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
