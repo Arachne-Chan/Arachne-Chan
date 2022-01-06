@@ -35,10 +35,18 @@
   - 🕹 Play Videogames
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
+### Contacts
+
+- E-mail: HazielNero@gmail.com
+- E-mail: NeroHaziel@outlook.com
+- Github: https://github.com/HepoHB (Aren't You already here?)
+
+### Random Info
+
 <details>
   <summary>Polemic Opinions</summary>
-
-  ### Did nothing wrong Squad
+  
+### Did nothing wrong Squad
  - 🩸 Eren
  - 🦅 Griffith
  - 👁️ Lelouch
@@ -46,19 +54,21 @@
  - 💥 Akemi Homura
  - 🇺🇸 Funny Valentine
   
- ### Rankings
-- 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika
-- 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei
-- 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others
-- ⭐ Joseph > Josuke >> Jotaro > Jonathan >>> Giorno >>> Jolyne >>> Johny >>> Josuke II
+### Rankings
+ - 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika
+ - 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei
+ - 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others
+ - ⭐ Joseph > Josuke >> Jotaro > Jonathan >>> Giorno >>> Jolyne >>> Johny >>> Josuke II
   
 </details>
 
-### Contacts
+<details>
+  <summary>Favorite Anime Openings</summary>
+  **Fate Last Encore Opening**
+  [![Bright Burning Shout](https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg)](https://youtu.be/uuZKRK3IYFo "Bright Burning Shout")
+  
+</details>
 
-- E-mail: HazielNero@gmail.com
-- E-mail: NeroHaziel@outlook.com
-- Github: https://github.com/HepoHB (Aren't You already here?)
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
