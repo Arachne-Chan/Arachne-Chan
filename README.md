@@ -107,18 +107,17 @@
   ### 1º. Requiem in D Minor - Wolfgang Amadeus Mozart
 <a href="https://youtu.be/sPlhKP0nZII" title="Requiem in D Minor"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506842/video_to_markdown/images/youtube--sPlhKP0nZII-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Requiem in D Minor" /></a>
   
-  ### 2º. Overlord Ending - LLL
-<a href="https://youtu.be/ChayFwyFvPk" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506960/video_to_markdown/images/youtube--QxHkLdQy5f0-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
-[![Waltz of the Flowers]()](https://youtu.be/QxHkLdQy5f0 "Waltz of the Flowers")
+  ### 2º. Waltz of the Flowers - Piotr Ilitch Tchaikovski
+<a href="https://youtu.be/VUF9g9V-Ang" title="Waltz of the Flowers"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507073/video_to_markdown/images/youtube--VUF9g9V-Ang-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Waltz of the Flowers" /></a>
+    
+  ### 3º. Boulevard of Broken Dreams - Last Theater
+<a href="https://youtu.be/Soa3gO7tL-c" title="Boulevard of Broken Dreams"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507313/video_to_markdown/images/youtube--Soa3gO7tL-c-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Boulevard of Broken Dreams" /></a>
   
-  ### 3º. To Love-Ru Ending - Lucky Tune
-<a href="https://youtu.be/9ajSoFZ1BfI" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
+  ### 4º. The Great Pretender - Freddie Mercury
+<a href="https://youtu.be/mLRjFWDGs1g" title="The Great Pretender"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507140/video_to_markdown/images/youtube--mLRjFWDGs1g-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="The Great Pretender" /></a>
   
-  ### 4º. Death Parade Ending - Last Theater
-<a href="https://youtu.be/fW0Jxf5SuRg" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506333/video_to_markdown/images/youtube--fW0Jxf5SuRg-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Last Theater" /></a>
-  
-  ### 5º. Soul Eater Ending - Bakusou Yumeuta
-<a href="https://youtu.be/6W1ajuerl6o" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506407/video_to_markdown/images/youtube--6W1ajuerl6o-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bakusou Yumeuta" /></a>
+  ### 5º. Echoes - Pink Floyd
+<a href="https://youtu.be/53N99Nim6WE" title="Echoes"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507247/video_to_markdown/images/youtube--53N99Nim6WE-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Echoes" /></a>
   
 </details>
 
