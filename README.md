@@ -63,19 +63,42 @@
 <details>
  <summary>Favorite Anime Openings</summary>
   
-### Fate Last Encore Opening - Bright Burning Shout
+### 1º. Fate Last Encore Opening - Bright Burning Shout
 <a href="https://youtu.be/uuZKRK3IYFo" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bright Burning Shout" /></a>
   
-### Beastars Opening - Wild Side
+### 2º. Beastars Opening - Wild Side
 <a href="https://youtu.be/bgo9dJB_icw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505419/video_to_markdown/images/youtube--bgo9dJB_icw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Wild Side" /></a>
   
-### Berserk Opening - Tell me Why
+### 3º. Berserk Opening - Tell me Why
 <a href="https://youtu.be/ocQ6PDiP014" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505489/video_to_markdown/images/youtube--ocQ6PDiP014-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tell me Why" /></a>
   
-### Fresh! Pretty Cure Opening - Let's Fresh! Pretty Cure
-<a href="https://youtu.be/GD7v2KQ4k0Y" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505572/video_to_markdown/images/youtube--GD7v2KQ4k0Y-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Let's Fresh! Pretty Cure" /></a>
+### 4º. Rozen Maiden Träumend Opening - Seishoujo Ryouiki
+<a href="https://youtu.be/SuAm904-hNA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505816/video_to_markdown/images/youtube--SuAm904-hNA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Seishoujo Ryouiki" /></a>
   
-### Attack on Titan Opening - My War
+### 5º. Attack on Titan Opening - My War
+<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
+  
+</details>
+
+<details>
+ <summary>Favorite Anime Endings</summary>
+
+  ### 1º. Fate Last Encore Ending - Tsuki to Hanataba
+<a href="https://youtu.be/xbOeZg7J_Iw" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506010/video_to_markdown/images/youtube--xbOeZg7J_Iw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tsuki to Hanataba" /></a>
+  
+  ### 2º. Attack on Titan Ending - My War
+<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
+  [![My War]()]( "")
+  
+  ### 3º. Attack on Titan Ending - My War
+<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
+  [![My War]()]( "")
+  
+  ### 4º. Attack on Titan Ending - My War
+<a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
+  [![My War]()]( "")
+  
+  ### 5º. Attack on Titan Ending - My War
 <a href="https://youtu.be/Y-eoYLBbZOA" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
   [![My War]()]( "")
   
