@@ -43,15 +43,7 @@
 
 <details>
  <summary>Polemic Opinions</summary>
-  
-### Did nothing wrong Squad
- - 🩸 Eren
- - 🦅 Griffith
- - 👁️ Lelouch
- - 📓 Raito Yagami
- - 💥 Akemi Homura
- - 🇺🇸 Funny Valentine
-  
+
 ### Rankings
  - 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika
  - 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei
