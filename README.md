@@ -42,6 +42,14 @@
 ## Random Info
 
 <details>
+ <summary>2022 Goals</summary>
+  ☐ Work on my projects every day (Even if for just 10 minutes)  
+  ☐ <b>Space Rainbow Demo</b> released  
+  ☐ Darling Moon -> 100 Subscribers
+  
+</details>
+
+<details>
  <summary>Polemic Opinions</summary>
 
 ### Rankings
