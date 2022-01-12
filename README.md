@@ -43,7 +43,6 @@
 
 <details>
  <summary>2022 Goals</summary>
-  ☐ Work on my projects every day (Even if for just 10 minutes) <br />
   ☐ <b>Space Rainbow Demo</b> released <br />
   ☐ Darling Moon -> 100 Subscribers <br />
   
