@@ -19,18 +19,20 @@
   - Favorite Book: 📚 The <b>S</b>crewtape Letters
   - Favorite Band: 🎹 My Chemical Romance
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
+  - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Height: 👠 1,50m (4'11") of pure gorgeousness (I a<b>M</b> not a loli, though)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
   - People I really respect: 💖 Leonar<b>D</b>o di Ser Piero d<b>A</b> Vinci || Ne<b>R</b>o C<b>L</b>aud<b>I</b>us Caezar Augustus Germa<b>N</b>icus || Myself (Self-love is <b>G</b>ood)
 
 ## Hobbies
   - 📖 Read
+  - 💻 Code
   - 📚 Study
-  - 💻 Coding
   - 🍨 Ice Cream
   - 🤖 Electronics
   - 🎎 Watch Anime
   - 🕹 Play Videogames
+  - 🦦 Hide the Weasel (Don't search for It, Kids)
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
 ## Contacts
@@ -42,16 +44,20 @@
 ## Random Info
 
 <details>
+  
  <summary>2022 Goals</summary>
-  ☐ <b>Space Rainbow Demo</b> released <br />
-  ☐ Darling Moon -> 100 Subscribers <br />
+  ☐ Finish Japanese Course<br />
+  ☐ Be approved in my exam<br />
+  ☐ Have <b>Chikara Concept</b> finished <br />
+  ☐ Completely Update <b>Biblioteca Carmesim</b><br />
+  ☐ Become the <b>Golden Gorgeous Girl Genius</b><br />
   
 </details>
 
 <details>
  <summary>Polemic Opinions</summary>
-
-### Rankings
+  
+ - Funny Valentine did nothing wrong
  - 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika
  - 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei
  - 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others
