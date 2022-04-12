@@ -31,7 +31,7 @@
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
   - People I really respect: 💖 Leonar<b>D</b>o di Ser Piero d<b>A</b> Vinci || Ne<b>R</b>o C<b>L</b>aud<b>I</b>us Caezar Augustus Germa<b>N</b>icus || Myself (Self-love is <b>G</b>ood)
 
-Ask me anything else on my <a src="https://my-darlingmoon.tumblr.com/ask">Tumblr.</b>
+Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask)">.
 
 ## Hobbies
   - 📖 Read
