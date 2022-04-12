@@ -47,11 +47,11 @@
   
  <summary>2022 Goals</summary>
   
-    ☐ Finish Japanese Course<br />
-    ☐ Be approved in my exam<br />
-    ☐ Have <b>Chikara Concept</b> finished <br />
-    ☐ Completely Update <b>Biblioteca Carmesim</b><br />
-    ☐ Become the <b>Golden Gorgeous Girl Genius</b><br />
+☐ Finish Japanese Course<br />
+☐ Be approved in my exam<br />
+☐ Have <b>Chikara Concept</b> finished <br />
+☐ Completely Update <b>Biblioteca Carmesim</b><br />
+☐ Become the <b>Golden Gorgeous Girl Genius</b><br />
   
 </details>
 
