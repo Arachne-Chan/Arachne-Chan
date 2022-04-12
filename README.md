@@ -58,11 +58,11 @@
 <details>
  <summary>Polemic Opinions</summary>
   
-☐ Funny Valentine did nothing wrong
-☐ 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika
-☐ 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei
-☐ 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others
-☐ ⭐ Joseph > Josuke >> Jotaro > Jonathan >>> Giorno >>> Jolyne >>> Johny >>> Josuke II
+☐ Funny Valentine did nothing wrong<br />
+☐ 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika<br />
+☐ 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei<br />
+☐ 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others<br />
+☐ ⭐ Joseph > Josuke >> Jotaro > Jonathan >>> Giorno >>> Jolyne >>> Johny >>> Josuke II<br />
   
 </details>
 
