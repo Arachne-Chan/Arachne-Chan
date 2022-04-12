@@ -22,7 +22,7 @@
   - Favorite Cartoon: 🦄 My L<b>I</b>ttle Pony FIM
   - Favorite Book: 📚 The <b>S</b>crewtape Letters
   - Favorite Band: 🎹 My Chemical Romance
-  - Logical or Creative: 💡 Both. Both is good.
+  - Logical or Creative: 💡 Both. Both is good
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
   - Virginity: 🛡️ Confidential Information (Maybe not so confidential)
   - Height: 👠 1,57m (5'2") of pure gorgeousness (I a<b>M</b> not a loli, though)
