@@ -12,14 +12,14 @@
   - Preference: 🏳️‍🌈 Omnisexual
   - Deathwish: 🪦 Be Cremated
   - Favorite Food: 🍨 Ice Cream
-  - Body Fat Oercentage: 🗜️ 23%
+  - Body Fat Percentage: 🗜️ 23%
   - Astrological sign: ♒ Aquarius
   - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
   - Favorite Music Genre: 🎼 Classical
   - Favorite Singer: 🎤 Michael Jac<b>K</b>son
-  - Favorite Cartoon: 🦄 My L<b>I</b>ttle Pony
   - Favorite Movie: 🍿 A Clockwork Orange
+  - Favorite Cartoon: 🦄 My L<b>I</b>ttle Pony FIM
   - Favorite Book: 📚 The <b>S</b>crewtape Letters
   - Favorite Band: 🎹 My Chemical Romance
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
