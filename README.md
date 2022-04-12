@@ -4,12 +4,15 @@
 
   - Country: 🇧🇷 Brazil
   - Personality: 🧠 INTJ
-  - Smoking: 🚬 No Smoking
-  - Drinking: 🍺 No Drinking
+
   - Pronouns: ♀️ She/Her/It
   - Birthday: 🎂 2003/01/23
+  - Drinking: 🍺 No Drinking
+  - Smoking: 🚬 No Smoking
   - Favorite Princess: 👑 Ariel
+  - Body Fat Oercentage: 🗜️ 23%
   - Preference: 🏳️‍🌈 Omnisexual
+  - Deathwish: 🪦 Be Cremated
   - Favorite Food: 🍨 Ice Cream
   - Astrological sign: ♒ Aquarius
   - Favorite Anime: 🗻 To Love-Ru
@@ -21,8 +24,9 @@
   - Favorite Book: 📚 The <b>S</b>crewtape Letters
   - Favorite Band: 🎹 My Chemical Romance
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
-  - Shoe size: 👢 Size 38 (For Brazilian Sizes. Approximately 25cm of foot size)
+  - Virginity: 🛡️ Confidential Information (Maybe not so confidential)
   - Height: 👠 1,50m (4'11") of pure gorgeousness (I a<b>M</b> not a loli, though)
+  - Shoe size: 👢 Size 38 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
   - People I really respect: 💖 Leonar<b>D</b>o di Ser Piero d<b>A</b> Vinci || Ne<b>R</b>o C<b>L</b>aud<b>I</b>us Caezar Augustus Germa<b>N</b>icus || Myself (Self-love is <b>G</b>ood)
