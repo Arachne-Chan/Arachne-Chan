@@ -9,10 +9,10 @@
   - Drinking: 🍺 No Drinking
   - Smoking: 🚬 No Smoking
   - Favorite Princess: 👑 Ariel
-  - Body Fat Oercentage: 🗜️ 23%
   - Preference: 🏳️‍🌈 Omnisexual
   - Deathwish: 🪦 Be Cremated
   - Favorite Food: 🍨 Ice Cream
+  - Body Fat Oercentage: 🗜️ 23%
   - Astrological sign: ♒ Aquarius
   - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
