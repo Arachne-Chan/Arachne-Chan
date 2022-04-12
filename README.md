@@ -17,6 +17,7 @@
   - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
   - Favorite Music Genre: 🎼 Classical
+  - Logical or Creative: 💡 Both. Both is good.
   - Favorite Singer: 🎤 Michael Jac<b>K</b>son
   - Favorite Movie: 🍿 A Clockwork Orange
   - Favorite Cartoon: 🦄 My L<b>I</b>ttle Pony FIM
@@ -29,6 +30,8 @@
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
   - People I really respect: 💖 Leonar<b>D</b>o di Ser Piero d<b>A</b> Vinci || Ne<b>R</b>o C<b>L</b>aud<b>I</b>us Caezar Augustus Germa<b>N</b>icus || Myself (Self-love is <b>G</b>ood)
+
+Ask me anything else on my <a src="https://my-darlingmoon.tumblr.com/ask">Tumblr.</b>
 
 ## Hobbies
   - 📖 Read
@@ -45,6 +48,7 @@
 
 - E-mail: HazielNero@gmail.com
 - E-mail: NeroHaziel@outlook.com
+- Tumblr: https://my-darlingmoon.tumblr.com/
 - Github: https://github.com/HepoHB (Aren't You already here?)
 
 ## Random Info
