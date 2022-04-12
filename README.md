@@ -4,6 +4,8 @@
 
   - Country: 🇧🇷 Brazil
   - Personality: 🧠 INTJ
+  - Smoking: 🚬 No Smoking
+  - Drinking: 🍺 No Drinking
   - Pronouns: ♀️ She/Her/It
   - Birthday: 🎂 2003/01/23
   - Favorite Princess: 👑 Ariel
@@ -19,6 +21,7 @@
   - Favorite Book: 📚 The <b>S</b>crewtape Letters
   - Favorite Band: 🎹 My Chemical Romance
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
+  - Shoe size: 👢 Size 38 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Height: 👠 1,50m (4'11") of pure gorgeousness (I a<b>M</b> not a loli, though)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
