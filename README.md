@@ -48,8 +48,8 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 
 - E-mail: HazielNero@gmail.com
 - E-mail: NeroHaziel@outlook.com
-- Tumblr: https://my-darlingmoon.tumblr.com/
 - Twitter: https://twitter.com/DarlingMoon___
+- Tumblr: https://my-darlingmoon.tumblr.com/
 - Github: https://github.com/HepoHB (Aren't You already here?)
 
 ## Random Info
