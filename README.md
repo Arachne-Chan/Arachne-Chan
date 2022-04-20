@@ -138,6 +138,10 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
   
 </details>
 
+# AND WE'LL ALL DANCE ALONE TO THE TUNE OF YOUR DEATH!
+## We'll love again, We'll laugh again
+### And It's better OFF this way
+
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
