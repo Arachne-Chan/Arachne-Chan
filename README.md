@@ -141,9 +141,10 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 # AND WE'LL ALL DANCE ALONE TO THE TUNE OF YOUR DEATH!
 ## We'll love again, We'll laugh again
 ### And It's better OFF this way
-And never again, and never again. They gave Us two shots to the back of the head  
+And never again, and never again  
+They gave Us two shots to the back of the head  
 And We're  
-all  
+All  
 **Dead**  
 **NOW**  
 
