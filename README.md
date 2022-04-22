@@ -25,7 +25,7 @@
   - Logical or Creative: 💡 Both. Both is good
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
   - Virginity: 🛡️ Confidential Information (Maybe not so confidential)
-  - Height: 👠 1,57m (5'2") of pure gorgeousness (I a<b>M</b> not a loli, though)
+  - Height: 👠 1,49m (4'11") of pure gorgeousness (I a<b>M</b> not a loli, though)
   - Shoe size: 👢 Size 39 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
