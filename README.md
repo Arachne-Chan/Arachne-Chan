@@ -17,19 +17,19 @@
   - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
   - Favorite Music Genre: 🎼 Classical
-  - Favorite Singer: 🎤 Michael Jac<b>K</b>son
+  - Favorite Singer: 🎤 Michael Jackson
   - Favorite Movie: 🍿 A Clockwork Orange
-  - Favorite Cartoon: 🦄 My L<b>I</b>ttle Pony FIM
-  - Favorite Book: 📚 The <b>S</b>crewtape Letters
+  - Favorite Cartoon: 🦄 My Little Pony FIM
+  - Favorite Book: 📚 The Screwtape Letters
   - Favorite Band: 🎹 My Chemical Romance
   - Logical or Creative: 💡 Both. Both is good
-  - Favorite Composer: 🎻 Piotr Ilitch Tchaikov<b>S</b>ki
+  - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
   - Virginity: 🛡️ Confidential Information (Maybe not so confidential)
-  - Height: 👠 1,49m (4'11") of pure gorgeousness (I a<b>M</b> not a loli, though)
+  - Height: 👠 1,49m (4'11") of pure gorgeousness (I am not a loli, though)
   - Shoe size: 👢 Size 39 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
-  - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japan<b>E</b>se(+) / Italian(±) / Russian(-)
-  - People I really respect: 💖 Leonar<b>D</b>o di Ser Piero d<b>A</b> Vinci || Ne<b>R</b>o C<b>L</b>aud<b>I</b>us Caezar Augustus Germa<b>N</b>icus || Myself (Self-love is <b>G</b>ood)
+  - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
+  - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Nero Claudus Caezar Augustus Germaicus || Myself (Self-love is Good)
 
 Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 
