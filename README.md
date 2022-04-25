@@ -143,16 +143,21 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-
-# AND WE'LL ALL DANCE ALONE TO THE TUNE OF YOUR DEATH!
-## We'll love again, We'll laugh again
-### And It's better OFF this way
-And never again, and never again  
-They gave Us two shots to the back of the head  
-And We're  
-All  
-**Dead**  
-**NOW**  
+Feel no shame about shape  
+Weather changes their phrase  
+Even mother will show You another way  
+# SO PUT YOUR GLASSES ON
+## NOTHING WILL BE WRONG
+### THERE'S NO BLAME, THERE'S NO FAME
+**IT'S UP TO YOU**  
+The first words should be finded  
+Whatever hold You back  
+I can, I can get It OFF  
+**Tell me what, tell me what, tell me what You want**  
+**I don't know why, don't know why, don't know why You afraid**  
+**Tell me what, tell me what, tell me what You say**  
+**I don't know why, don't know why** 
+# Too late, It's too late  
 
 
 <!--
