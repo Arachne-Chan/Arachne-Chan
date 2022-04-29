@@ -202,7 +202,7 @@ Mama, We all go to **Hell**
 ## Mama! Mama! Mama! Oh! Mama! Mama! Mama! Ma
 
 
-*And if you would call me Your sweetheart, I'd maybe then sing You a song*  
+*And if You would call me Your sweetheart, I'd maybe then sing You a song*  
 # BUT THERE'S SHIT THAT I'VE DONE WITH THIS FUCK OF A GUN
 ### YOU WOULD CRY OUT YOUR EYES ALL ALONG
 
@@ -214,7 +214,7 @@ Mama, We all go to **Hell**
 **To return from the ashes You call**  
 
 ### WE ALL CARRY ON
-**When our brothers in arms are gone **  
+**When our brothers in arms are gone**  
 
 ### So raise Your glass high, for tomorrow
 # WE DIE
