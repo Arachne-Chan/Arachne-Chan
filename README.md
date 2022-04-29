@@ -143,22 +143,60 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-Feel no shame about shape  
-Weather changes their phrase  
-Even mother will show You another way  
-# SO PUT YOUR GLASSES ON
-## NOTHING WILL BE WRONG
-### THERE'S NO BLAME, THERE'S NO FAME
-**IT'S UP TO YOU**  
-The first words should be finded  
-Whatever hold You back  
-I can, I can get It OFF  
-**Tell me what, tell me what, tell me what You want**  
-**I don't know why, don't know why, don't know why You afraid**  
-**Tell me what, tell me what, tell me what You say**  
-**I don't know why, don't know why** 
-# Too late, It's too late  
+Mama, We all go to **Hell**  
+Mama, We all go to **Hell**  
+I'm writing this letter and wishing You well  
+Mama, We all go to **Hell**  
 
+
+**Oh, well, now**  
+
+
+Mama, We're all gonna **DIE**  
+Mama, We're all gonna **DIE**  
+**STOP ASKING ME QUESTIONS**  
+**I'D HATE TO SEE YOU CRY**  
+Mama, We're all gonna **DIE**  
+
+
+# AND WHEN WE GO DON'T BLAME US, YEAH
+## WE'LL LET THE FIRE JUST BATHE US, YEAH
+### YOU MADE US, OH, SO FAMOUS
+**We'll never let You go**  
+And when You go don't return to me my love  
+
+
+Mama, We're all full of **Lies**  
+Mama, We're meant for the **Flies**  
+And right now they're building a coffin Your size  
+Mama, We're all full of **Lies**  
+
+
+**Well, Mother, what the war did to my legs and to my tongue**  
+**You should've raised a baby girl**  
+**I should've been a better son**  
+If You could coddle the infection  
+They can amputate at once  
+You should've been  
+I could have been a better son  
+
+
+# AND WHEN WE GO DON'T BLAME US, YEAH
+## WE'LL LET THE FIRE JUST BATHE US, YEAH
+### YOU MADE US, OH, SO FAMOUS
+**We'll never let You go**  
+She said: You ain't no son of mine  
+For what You've done they're gonna find a place for You  
+And just You mind Your manners when You **GO**  
+# And when You go don't return to me, my love  
+That's right  
+
+
+Mama, We all go to **Hell**  
+Mama, We all go to **Hell**  
+It's really quite pleasant  
+Except for the smell  
+Mama, We all go to **Hell**  
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
