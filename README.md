@@ -173,8 +173,7 @@ Mama, We're all full of **Lies**
 
 
 **Well, Mother, what the war did to my legs and to my tongue**  
-**You should've raised a baby girl**  
-**I should've been a better son**  
+# 𝗬𝗼𝘂 𝘀𝗵𝗼𝘂𝗹𝗱'𝘃𝗲 𝗿𝗮𝗶𝘀𝗲𝗱 𝗮 𝗯𝗮𝗯𝘆 𝗴𝗶𝗿𝗹 𝗜 𝘀𝗵𝗼𝘂𝗹𝗱'𝘃𝗲 𝗯𝗲𝗲𝗻 𝗮 𝗯𝗲𝘁𝘁𝗲𝗿 𝘀𝗼𝗻  
 If You could coddle the infection  
 They can amputate at once  
 You should've been  
