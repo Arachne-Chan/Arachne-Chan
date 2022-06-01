@@ -146,9 +146,9 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 # It is a wonderful my life
 ## Please, could You kiss my name?
 ### When the music's over, turn OFF light
-**It was a such a sweet time
-Could You pray for me, my friend?
-It's starting over time...**
+**It was a such a sweet time  
+Could You pray for me, my friend?  
+It's starting over time...**  
 
 # Taking over the night, taking over blue time
 ## If You heard that screaming shout in Your mind
