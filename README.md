@@ -143,81 +143,18 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-Mama, We all go to **Hell**  
-Mama, We all go to **Hell**  
-I'm writing this letter and wishing You well  
-Mama, We all go to **Hell**  
+# It is a wonderful my life
+## Please, could You kiss my name?
+### When the music's over, turn OFF light
+**It was a such a sweet time
+Could You pray for me, my friend?
+It's starting over time...**
 
-
-**Oh, well, now**  
-
-
-Mama, We're all gonna **DIE**  
-Mama, We're all gonna **DIE**  
-**STOP ASKING ME QUESTIONS**  
-**I'D HATE TO SEE YOU CRY**  
-Mama, We're all gonna **DIE**  
-
-
-# AND WHEN WE GO DON'T BLAME US, YEAH
-## WE'LL LET THE FIRE JUST BATHE US, YEAH
-### YOU MADE US, OH, SO FAMOUS
-**We'll never let You go**  
-And when You go don't return to me my love  
-
-
-Mama, We're all full of **Lies**  
-Mama, We're meant for the **Flies**  
-And right now they're building a coffin Your size  
-Mama, We're all full of **Lies**  
-
-
-**Well, Mother, what the war did to my legs and to my tongue**  
-# 𝗬𝗼𝘂 𝘀𝗵𝗼𝘂𝗹𝗱'𝘃𝗲 𝗿𝗮𝗶𝘀𝗲𝗱 𝗮 𝗯𝗮𝗯𝘆 𝗴𝗶𝗿𝗹 𝗜 𝘀𝗵𝗼𝘂𝗹𝗱'𝘃𝗲 𝗯𝗲𝗲𝗻 𝗮 𝗯𝗲𝘁𝘁𝗲𝗿 𝘀𝗼𝗻  
-If You could coddle the infection  
-They can amputate at once  
-You should've been  
-I could have been a better son  
-
-
-# AND WHEN WE GO DON'T BLAME US, YEAH
-## WE'LL LET THE FIRE JUST BATHE US, YEAH
-### YOU MADE US, OH, SO FAMOUS
-**We'll never let You go**  
-She said: You ain't no son of mine  
-For what You've done they're gonna find a place for You  
-And just You mind Your manners when You **GO**  
-# And when You go don't return to me, my love  
-That's right  
-
-
-Mama, We all go to **Hell**  
-Mama, We all go to **Hell**  
-It's really quite pleasant  
-Except for the smell  
-Mama, We all go to **Hell**  
-
-
-## Mama! Mama! Mama! Oh! Mama! Mama! Mama! Ma
-
-
-*And if You would call me Your sweetheart, I'd maybe then sing You a song*  
-# BUT THERE'S SHIT THAT I'VE DONE WITH THIS FUCK OF A GUN
-### YOU WOULD CRY OUT YOUR EYES ALL ALONG
-
-
-**We're damned after all**  
-**Through fortune and fame, We fall**  
-**And if You can stay then I'll show You**  
-### THE WAY
-**To return from the ashes You call**  
-
-### WE ALL CARRY ON
-**When our brothers in arms are gone**  
-
-### So raise Your glass high, for tomorrow
-# WE DIE
-**And return from the ashes You call**  
+# Taking over the night, taking over blue time
+## If You heard that screaming shout in Your mind
+### Taking over the shine, taking over the shooting star
+**All I was talking about was music**
+# And that's called JAZZ!
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
