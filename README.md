@@ -26,7 +26,7 @@
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
   - Virginity: 🛡️ Confidential Information (Maybe not so confidential)
   - Height: 👠 1,49m (4'11") of pure gorgeousness (I am not a loli, though)
-  - Shoe size: 👢 Size 39 (For Brazilian Sizes. Approximately 25cm of foot size)
+  - Shoe size: 👢 Size 38 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
   - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Nero Claudus Caezar Augustus Germaicus || Myself (Self-love is Good)
