@@ -143,18 +143,14 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-# It is a wonderful my life
-## Please, could You kiss my name?
-### When the music's over, turn OFF light
-**It was a such a sweet time  
-Could You pray for me, my friend?  
-It's starting over time...**  
-
-# Taking over the night, taking over blue time
-## If You heard that screaming shout in Your mind
-### Taking over the shine, taking over the shooting star
-**All I was talking about was music**
-# And that's called JAZZ!
+# Someone get me to the doctor!
+# And someone call the nurse!
+# And someone buy me roses!
+# And someone burned the church!
+## We're hanging out with corpses...
+### And driving in this hearse.
+**And someone save my soul, tonight!**
+# Please save my Soul!
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
