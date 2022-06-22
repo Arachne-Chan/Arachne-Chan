@@ -143,14 +143,9 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-# Someone get me to the doctor!
-# And someone call the nurse!
-# And someone buy me roses!
-# And someone burned the church!
-## We're hanging out with corpses...
-### And driving in this hearse.
-**And someone save my soul, tonight!**
-# Please save my Soul!
+### I'm so happy!
+## 'Cause today I've found my friends...
+# They're in my head!
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
