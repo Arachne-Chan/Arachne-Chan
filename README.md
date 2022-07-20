@@ -20,8 +20,8 @@
   - Favorite Music Genre: 🎼 Classical
   - Favorite Singer: 🎤 Michael Jackson
   - Favorite Movie: 🍿 A Clockwork Orange
-  - Favorite Cartoon: 🦄 My Little Pony FIM
   - Favorite Book: 📚 The Screwtape Letters
+  - Favorite Cartoon: 🦄 My Little Pony FIM
   - Favorite Band: 🎹 My Chemical Romance
   - Logical or Creative: 💡 Both. Both is good
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
@@ -141,9 +141,8 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-### I'm so happy!
-## 'Cause today I've found my friends...
-# They're in my head!
+## Don't be afraid of getting hurt...
+# Forever We can make It!
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
