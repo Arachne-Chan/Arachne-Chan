@@ -6,7 +6,7 @@
   - Personality: 🧠 INTJ
   - Pronouns: ♀️ She/Her/It
   - Birthday: 🎂 2003/01/23
-  - Drugs: 💉 No Drugs Use
+  - Drugs: 💉 Don't do Drugs
   - Drinking: 🍺 No Drinking
   - Smoking: 🚬 No Smoking
   - Favorite Princess: 👑 Ariel
