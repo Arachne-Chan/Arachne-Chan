@@ -140,8 +140,7 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-## Don't be afraid of getting hurt...
-# Forever We can make It!
+# I love You!
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
