@@ -7,11 +7,11 @@
   - Birthday: 🎂 2003/01/23
   - Drinking: 🍺 No Drinking
   - Smoking: 🚬 No Smoking
-  - Pronouns: ♀️ She/Her/It/They
   - Favorite Princess: 👑 Ariel
   - Preference: 🏳️‍🌈 Omnisexual
   - Deathwish: 🪦 Be Cremated
   - Favorite Food: 🍨 Ice Cream
+  - Pronouns: ♀️ She/Her/It/They
   - Body Fat Percentage: 🗜️ 23%
   - Astrological sign: ♒ Aquarius
   - Favorite Anime: 🗻 To Love-Ru
