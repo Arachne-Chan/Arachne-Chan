@@ -4,10 +4,10 @@
 
   - Country: 🇧🇷 Brazil
   - Personality: 🧠 INTJ
-  - Pronouns: ♀️ She/Her/It
   - Birthday: 🎂 2003/01/23
   - Drinking: 🍺 No Drinking
   - Smoking: 🚬 No Smoking
+  - Pronouns: ♀️ She/Her/It/They
   - Favorite Princess: 👑 Ariel
   - Preference: 🏳️‍🌈 Omnisexual
   - Deathwish: 🪦 Be Cremated
