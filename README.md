@@ -140,6 +140,8 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
+<img src="https://github-readme-streak-stats.herokuapp.com/?user=madushadhanushka&theme=HepoHB" alt="mystreak"/>
+
 ### Everybody wants to change the world!
 ### Everybody wants to change the world!
 **But no one...** 
