@@ -140,8 +140,7 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 <br />
 
-<img src="https://github-readme-streak-stats.herokuapp.com/?user=HepoHB&theme=tokyonight" alt="mystreak"/>
-<img src="https://github-readme-stats.vercel.app/api/top-langs?username=HepoHB&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="ovi" />
+<img src="https://github-readme-streak-stats.herokuapp.com/?user=HepoHB&theme=tokyonight" alt="mystreak"/><img src="https://github-readme-stats.vercel.app/api/top-langs?username=HepoHB&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="ovi" />
 <a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
 
 <a href="https://www.linkedin.com/in/dhanushkamadushan/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
