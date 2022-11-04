@@ -52,6 +52,9 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 - Tumblr: https://my-darlingmoon.tumblr.com/
 - MyAnimeList: https://myanimelist.net/profile/Darling_Moon
 - Github: https://github.com/HepoHB (Aren't You already here?)
+<a href="https://www.linkedin.com/in/nerohaziel/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
+<a href="https://www.instagram.com/darlingmoon___/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
+<a href="https://open.spotify.com/playlist/55CbMzZ6OykcXclmkU0zZz" target="_blank"><img src="https://img.shields.io/badge/Spotify-%231ED760.svg?&style=flat-square&logo=spotify&logoColor=white" alt="Spotify"></a>
 
 ## Random Info
 
@@ -141,13 +144,8 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <br />
 
 <img src="https://github-readme-streak-stats.herokuapp.com/?user=HepoHB&theme=tokyonight" alt="mystreak"/><img src="https://github-readme-stats.vercel.app/api/top-langs?username=HepoHB&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="ovi" />
-<a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
 
-<a href="https://www.linkedin.com/in/dhanushkamadushan/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
-<a href="https://www.instagram.com/dhanushka_m/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
-<a href="https://www.facebook.com/dhanushka.madushan.37" target="_blank"><img src="https://img.shields.io/badge/Facebook-%231877F2.svg?&style=flat-square&logo=facebook&logoColor=white" alt="Facebook"></a>
-<a href="https://open.spotify.com/playlist/37i9dQZF1DWYfNJLV7OBMA" target="_blank"><img src="https://img.shields.io/badge/Spotify-%231ED760.svg?&style=flat-square&logo=spotify&logoColor=white" alt="Spotify"></a>
-<a href="https://dev.to/dhanushkadev" target="_blank"><img src="https://img.shields.io/badge/DEV-%230A0A0A.svg?&style=flat-square&logo=DEV.to&logoColor=white" alt="DEV.to"></a>
+<a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
 
 ### Everybody wants to change the world!
 ### Everybody wants to change the world!
