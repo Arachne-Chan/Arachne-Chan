@@ -52,22 +52,15 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 - Tumblr: https://my-darlingmoon.tumblr.com/
 - MyAnimeList: https://myanimelist.net/profile/Darling_Moon
 - Github: https://github.com/HepoHB (Aren't You already here?)
+
 <a href="https://www.linkedin.com/in/nerohaziel/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
 <a href="https://www.instagram.com/darlingmoon___/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
 <a href="https://open.spotify.com/playlist/55CbMzZ6OykcXclmkU0zZz" target="_blank"><img src="https://img.shields.io/badge/Spotify-%231ED760.svg?&style=flat-square&logo=spotify&logoColor=white" alt="Spotify"></a>
+<a href="https://github.com/HepoHB" target="_blank"><img src="https://img.shields.io/github/followers/HepoHB?style=social" alt="Github"></a>
+
 
 ## Random Info
 
-<details>
-  
- <summary>2022 Goals</summary>
-  
-☐ Finish Japanese Course<br />
-☐ Become the <b>Golden Gorgeous Girl Genius</b><br />
-  
-</details>
-
-<details>
  <summary>Polemic Opinions</summary>
   
 ☐ Funny Valentine did nothing wrong<br />
@@ -147,11 +140,11 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 
 <a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
 
-### Everybody wants to change the world!
-### Everybody wants to change the world!
-**But no one...** 
-# No one wants to die!
-Wanna try, wanna try, wanna try, Wanna try, wanna try
+
+### SOMEONE GET ME TO THE DOCTOR!
+### AND SOMEONE CALL THE NURSE!
+### AND SOMEONE BUY ME ROSES!
+### AND SOMEONE BURNED THE CHURCH!
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
