@@ -141,10 +141,7 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
 
 
-### SOMEONE GET ME TO THE DOCTOR!
-### AND SOMEONE CALL THE NURSE!
-### AND SOMEONE BUY ME ROSES!
-### AND SOMEONE BURNED THE CHURCH!
+### A gente estancou de repente ou foi o mundo então que cresceu?
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
