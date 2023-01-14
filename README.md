@@ -24,7 +24,6 @@
   - Favorite Band: 🎹 My Chemical Romance
   - Logical or Creative: 💡 Both. Both is good
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
-  - Virginity: 🛡️ Confidential Information (Maybe not so confidential)
   - Height: 👠 1,54m (5'1") of pure gorgeousness (I am not a loli, though)
   - Shoe size: 👢 Size 37 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
@@ -41,7 +40,6 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
   - 🤖 Electronics
   - 🎎 Watch Anime
   - 🕹 Play Videogames
-  - 🦦 Hide the Weasel (Don't search for It, Kids)
   - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
 ## Contacts
