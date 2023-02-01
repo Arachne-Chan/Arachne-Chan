@@ -139,7 +139,8 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
 
 
-### A gente estancou de repente ou foi o mundo então que cresceu?
+### Stand up fxcking tall, don't let them see your back
+### And take my fxcking hand and never be afraid again
 
 <!--
 **Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
