@@ -28,7 +28,7 @@
   - Shoe size: 👢 Size 37 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Spanish(+) / Japanese(+) / Italian(±) / Russian(-)
-  - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Nero Claudus Caezar Augustus Germaicus || Myself (Self-love is Good)
+  - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Wolfgang Amadeus Mozart || Myself (Self-love is Good)
 
 Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 
