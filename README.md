@@ -45,6 +45,7 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 ## Contacts
 
 - E-mail: HazielNero@gmail.com
+
 - E-mail: NeroHaziel@outlook.com
 <!--- Twitter: https://twitter.com/DarlingMoon___-->
 - Tumblr: https://my-darlingmoon.tumblr.com/
