@@ -46,9 +46,9 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 
 - E-mail: HazielNero@gmail.com
 - E-mail: NeroHaziel@outlook.com
-- Twitter: https://twitter.com/DarlingMoon___
+<!--- Twitter: https://twitter.com/DarlingMoon___-->
 - Tumblr: https://my-darlingmoon.tumblr.com/
-- MyAnimeList: https://myanimelist.net/profile/Darling_Moon
+<!---- MyAnimeList: https://myanimelist.net/profile/Darling_Moon-->
 - Github: https://github.com/HepoHB (Aren't You already here?)
 
 <a href="https://www.linkedin.com/in/nerohaziel/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
