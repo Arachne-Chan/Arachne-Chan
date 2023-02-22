@@ -3,7 +3,6 @@
 ## What You would like to know (Or not) about me:
 
   - Country: 🇧🇷 Brazil
-  - Personality: 🧠 INTJ
   - Birthday: 🎂 2003/01/23
   - Drinking: 🍺 No Drinking
   - Smoking: 🚬 No Smoking
@@ -25,6 +24,7 @@
   - Logical or Creative: 💡 Both. Both is good
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
   - Height: 👠 1,54m (5'1") of pure gorgeousness (I am not a loli, though)
+  - Personality: 🧠 The most extrovert INTJ, maybe the most introvert ENTJ
   - Shoe size: 👢 Size 37 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Japanese(+) / Spanish(±) / Italian(±) / Russian(-)
