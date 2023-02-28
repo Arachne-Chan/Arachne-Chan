@@ -66,7 +66,7 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 ☐ 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika<br />
 ☐ 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei<br />
 ☐ 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others<br />
-☐ ⭐ Joseph > Josuke >> Jotaro > Jonathan >>> Giorno >>> Jolyne >>> Johny >>> Josuke II<br />
+☐ ⭐ Joseph > Josuke >> Jotaro > Johny >>> Jonathan >>> Giorno >>> Jolyne >>> Josuke II<br />
   
 </details>
 
