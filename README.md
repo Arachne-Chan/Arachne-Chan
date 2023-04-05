@@ -140,7 +140,7 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 <a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
 
 
-# So long and goodnight
+# There are people who are born with the function of moving the world, regardless of the position or social class determined by the laws of men. These people are the true elite created by the universal law, the true rulers blessed with the power of God! I want to know... What is my role in this world? Who am I and what am I capable of doing? What is the mission that has been given to me?
 
 
 <!--
