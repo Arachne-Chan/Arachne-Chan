@@ -10,7 +10,7 @@
   - Preference: 🏳️‍🌈 Omnisexual
   - Deathwish: 🪦 Be Cremated
   - Favorite Food: 🍨 Ice Cream
-  - Pronouns: ♀️ She/Her/It/They
+  - Pronouns: ♀️ She/Her/They
   - Body Fat Percentage: 🗜️ 23%
   - Astrological sign: ♒ Aquarius
   - Favorite Anime: 🗻 To Love-Ru
@@ -27,10 +27,8 @@
   - Personality: 🧠 The most extrovert INTJ, maybe the most introvert ENTJ
   - Shoe size: 👢 Size 37 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
-  - Spoken languages: 🌎 Portuguese(+) / English(+) / Japanese(+) / Spanish(±) / Italian(±) / Russian(-)
+  - Spoken languages: 🌎 Portuguese(+) / English(+) / Japanese(+) / Spanish(±) / Italian(±) / Latin(-)
   - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Wolfgang Amadeus Mozart || Myself (Self-love is Good)
-
-Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 
 ## Hobbies
   - 📖 Read
@@ -48,8 +46,8 @@ Ask me anything else on my [Tumblr](https://my-darlingmoon.tumblr.com/ask).
 
 - E-mail: NeroHaziel@outlook.com
 <!--- Twitter: https://twitter.com/DarlingMoon___-->
-- Tumblr: https://my-darlingmoon.tumblr.com/
-<!---- MyAnimeList: https://myanimelist.net/profile/Darling_Moon-->
+<!--- Tumblr: https://my-darlingmoon.tumblr.com/-->
+- MyAnimeList: https://myanimelist.net/profile/Darling_Moon
 - Github: https://github.com/HepoHB (Aren't You already here?)
 
 <a href="https://www.linkedin.com/in/nerohaziel/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
