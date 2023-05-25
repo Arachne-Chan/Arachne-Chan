@@ -42,8 +42,8 @@
 
 ## Contacts
 
+- https://bmc.link/Hepo
 - E-mail: HazielNero@gmail.com
-
 - E-mail: NeroHaziel@outlook.com
 <!--- Twitter: https://twitter.com/DarlingMoon___-->
 <!--- Tumblr: https://my-darlingmoon.tumblr.com/-->
