@@ -1,4 +1,4 @@
-# 🌹 Ṋ̴̻̤̟̮͛̋͐̊̄́̊͋͠e̶̛̲̍̏̈́̇̇́r̴̮̟̯̯̰͊ǫ̷͙̔͒̋ ̶͍̝̬̫͕̽͆́Ȟ̶̥̄͆̈́͂ạ̵̮͉̈́̔͐̐̒̆̓̀̾z̴̥͖͖͍̘̥̃͊̕ȉ̶̬̩̲̲̳̉ͅe̵̟̯͔͈͚͂͑̋͘͜l̶͈̩̫͖̉ 🌹
+# 🖤 Ṋ̴̻̤̟̮͛̋͐̊̄́̊͋͠e̶̛̲̍̏̈́̇̇́r̴̮̟̯̯̰͊ǫ̷͙̔͒̋ ̶͍̝̬̫͕̽͆́Ȟ̶̥̄͆̈́͂ạ̵̮͉̈́̔͐̐̒̆̓̀̾z̴̥͖͖͍̘̥̃͊̕ȉ̶̬̩̲̲̳̉ͅe̵̟̯͔͈͚͂͑̋͘͜l̶͈̩̫͖̉ 🖤
 
 ## What You would like to know (Or not) about me:
 
@@ -9,11 +9,10 @@
   - Favorite Princess: 👑 Ariel
   - Preference: 🏳️‍🌈 Omnisexual
   - Deathwish: 🪦 Be Cremated
-  - Favorite Food: 🍨 Ice Cream
   - Pronouns: ♀️ She/Her/They
+  - Favorite Food: 🍨 Ice Cream
   - Body Fat Percentage: 🗜️ 23%
   - Astrological sign: ♒ Aquarius
-  - Favorite Anime: 🗻 To Love-Ru
   - Favorite Videogame: 🕹️ Fortnite
   - Favorite Music Genre: 🎼 Classical
   - Favorite Singer: 🎤 Michael Jackson
@@ -23,10 +22,11 @@
   - Favorite Band: 🎹 My Chemical Romance
   - Logical or Creative: 💡 Both. Both is good
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
+  - Favorite Anime: 🗻 Fate Stay/Night: Unlimited Blade Works
   - Height: 👠 1,54m (5'1") of pure gorgeousness (I am not a loli, though)
   - Personality: 🧠 The most extrovert INTJ, maybe the most introvert ENTJ
-  - Shoe size: 👢 Size 37 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
+  - Shoe size: 👢 Size 37/38 (For Brazilian Sizes. Approximately 25cm of foot size)
   - Spoken languages: 🌎 Portuguese(+) / English(+) / Japanese(+) / Spanish(±) / Italian(±) / Latin(-)
   - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Wolfgang Amadeus Mozart || Myself (Self-love is Good)
 
@@ -45,8 +45,6 @@
 - https://bmc.link/Hepo
 - E-mail: HazielNero@gmail.com
 - E-mail: NeroHaziel@outlook.com
-<!--- Twitter: https://twitter.com/DarlingMoon___-->
-<!--- Tumblr: https://my-darlingmoon.tumblr.com/-->
 - MyAnimeList: https://myanimelist.net/profile/Darling_Moon
 - Github: https://github.com/HepoHB (Aren't You already here?)
 
@@ -64,7 +62,7 @@
 ☐ 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika<br />
 ☐ 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei<br />
 ☐ 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others<br />
-☐ ⭐ Joseph > Josuke >> Jotaro > Johny >>> Jonathan >>> Giorno >>> Jolyne >>> Josuke II<br />
+☐ ⭐ Joseph > Josuke >> Jotaro > Johny >>> Jonathan >>> Giorno >>> Jolyne >>> Josuke II >>> Jodio<br />
   
 </details>
 
