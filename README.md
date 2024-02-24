@@ -7,7 +7,6 @@
   - Drinking: 🍺 No Drinking
   - Smoking: 🚬 No Smoking
   - Favorite Princess: 👑 Ariel
-  - Preference: 🏳️‍🌈 Omnisexual
   - Deathwish: 🪦 Be Cremated
   - Pronouns: ♀️ She/Her/They
   - Favorite Food: 🍨 Ice Cream
@@ -23,11 +22,11 @@
   - Logical or Creative: 💡 Both. Both is good
   - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
   - Favorite Anime: 🗻 Fate Stay/Night: Unlimited Blade Works
-  - Height: 👠 1,54m (5'1") of pure gorgeousness (I am not a loli, though)
+  - Height: 👠 1,53m (5'1") of pure gorgeousness (I am not a loli, though)
   - Personality: 🧠 The most extrovert INTJ, maybe the most introvert ENTJ
   - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
-  - Shoe size: 👢 Size 37/38 (For Brazilian Sizes. Approximately 25cm of foot size)
-  - Spoken languages: 🌎 Portuguese(+) / English(+) / Japanese(+) / Spanish(±) / Italian(±) / Latin(-)
+  - Shoe size: 👢 Size 37/38 (For Brazilian Sizes. Approximately 24cm of foot size)
+  - Spoken languages: 🌎 Portuguese(+) / English(+) / Japanese(+) / Spanish(±) / Italian(±) / Chinese(-) / Latin(-)
   - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Wolfgang Amadeus Mozart || Myself (Self-love is Good)
 
 ## Hobbies
