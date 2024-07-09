@@ -1,7 +1,7 @@
 # 🖤 Ṋ̴̻̤̟̮͛̋͐̊̄́̊͋͠e̶̛̲̍̏̈́̇̇́r̴̮̟̯̯̰͊ǫ̷͙̔͒̋ ̶͍̝̬̫͕̽͆́Ȟ̶̥̄͆̈́͂ạ̵̮͉̈́̔͐̐̒̆̓̀̾z̴̥͖͖͍̘̥̃͊̕ȉ̶̬̩̲̲̳̉ͅe̵̟̯͔͈͚͂͑̋͘͜l̶͈̩̫͖̉ 🖤
 
 ## Contemple o perfil da nova reencarnação da Deusa das trevas!!
-<img src="https://media.discordapp.net/attachments/383377844849475585/1260380229478780990/RaidenMeDespicable.jpg?ex=668f1c0f&is=668dca8f&hm=12673036f3a59a1c683c321c5b3bbc03476c69977ab56929ed86a050d715047b&=&format=webp&width=1025&height=280">
+<img src="https://media.discordapp.net/attachments/383377844849475585/1260380679498109029/RaidenMeDespicable.jpg?ex=668f1c7a&is=668dcafa&hm=75c5c8ff15646ba039045dee4214e0136bacd62aaa420854c36e835e920a80c0&=&format=webp&width=1025&height=280">
 
 ## What You would like to know (Or not) about me:
 
