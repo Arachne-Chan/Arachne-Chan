@@ -1,5 +1,7 @@
 # 🖤 Ṋ̴̻̤̟̮͛̋͐̊̄́̊͋͠e̶̛̲̍̏̈́̇̇́r̴̮̟̯̯̰͊ǫ̷͙̔͒̋ ̶͍̝̬̫͕̽͆́Ȟ̶̥̄͆̈́͂ạ̵̮͉̈́̔͐̐̒̆̓̀̾z̴̥͖͖͍̘̥̃͊̕ȉ̶̬̩̲̲̳̉ͅe̵̟̯͔͈͚͂͑̋͘͜l̶͈̩̫͖̉ 🖤
 
+<img src="https://media.discordapp.net/attachments/383377844849475585/1260367053391401060/RaidenMe.jpg?ex=668f0fca&is=668dbe4a&hm=02756fe2e0f5e3d18d0ec5304b38dc7a40ced94496cac19668986398ffbf5885&=&format=webp" alt="Bright Burning Shout" />
+
 ## What You would like to know (Or not) about me:
 
   - Country: 🇧🇷 Brazil
