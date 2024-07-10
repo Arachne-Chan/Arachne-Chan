@@ -4,7 +4,7 @@
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260380679498109029/RaidenMeDespicable.jpg?ex=668f1c7a&is=668dcafa&hm=75c5c8ff15646ba039045dee4214e0136bacd62aaa420854c36e835e920a80c0&=&format=webp&width=1025&height=280">
 
 ## About me
-> I'm the gorgeous girl genius whose good looks and golden brain will go down in history! <img src="https://static.wikia.nocookie.net/danganronpa/images/7/78/Danganronpa_V3_Bonus_Mode_Miu_Iruma_Sprite_%2821%29.png/revision/latest?cb=20171003104559" height="1rem">
+> I'm the gorgeous girl genius whose good looks and golden brain will go down in history! <img src="https://static.wikia.nocookie.net/danganronpa/images/7/78/Danganronpa_V3_Bonus_Mode_Miu_Iruma_Sprite_%2821%29.png/revision/latest?cb=20171003104559" height="10rem">
   - Country: 🇧🇷 Brazil
   - Birthday: 🎂 2003/01/23
   - Drinking: 🍺 No Drinking
