@@ -5,7 +5,7 @@
 
 ## About me
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260393517931561002/MiuIrumaDespicable.jpg?ex=668f286f&is=668dd6ef&hm=4559755f5f98b47103433d93aa0b407abcc7bb5e28aeeb5f3bd57d28c7d0c97b&=&format=webp&width=1025&height=128">
-Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda a maternidade. Todos ficaram imediatamente encantados com tamanha perfeição, mal sabendo que esta bebê viria a se tornar um 𝐏𝐫𝐨𝐣𝐞𝐭𝐨 𝐝𝐞 𝐀𝐧𝐭𝐢𝐜𝐫𝐢𝐬𝐭𝐨.
+Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda a maternidade. Todos ficaram imediatamente encantados com tamanha perfeição, mal sabendo que esta bebê viria a se tornar um 𝐏𝐫𝐨𝐣𝐞𝐭𝐨 𝐝𝐞 𝐀𝐧𝐭𝐢𝐜𝐫𝐢𝐬𝐭𝐨, o 𝐀𝐛𝐚𝐝𝐨𝐧, 𝐀 𝐃𝐞𝐬𝐭𝐫𝐮𝐢𝐝𝐨𝐫𝐚, ou apenas 𝐍𝐞𝐫𝐨 𝐇𝐚𝐳𝐢𝐞𝐥, seu glorioso e majestoso nome.
 
 ## Contacts
 
