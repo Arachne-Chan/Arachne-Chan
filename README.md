@@ -3,8 +3,8 @@
 ## Contemple o perfil da nova reencarnação da Deusa das trevas!!
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260380679498109029/RaidenMeDespicable.jpg?ex=668f1c7a&is=668dcafa&hm=75c5c8ff15646ba039045dee4214e0136bacd62aaa420854c36e835e920a80c0&=&format=webp&width=1025&height=280">
 
-## What You would like to know (Or not) about me:
-
+## About me
+> I'm the gorgeous girl genius whose good looks and golden brain will go down in history!
   - Country: 🇧🇷 Brazil
   - Birthday: 🎂 2003/01/23
   - Drinking: 🍺 No Drinking
