@@ -12,7 +12,8 @@ Assim como boa ditadora e intelectual, sua paixão pelas artes e ciências é no
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260426253068931134/TwilightBook.jpg?ex=668f46ec&is=668df56c&hm=0bde0fa5b73697a93f65ca3a2dee7d524d8c0652319c5f2a7a9e3a006a18a11e&=&format=webp&width=1025&height=280" />
 Cursando Ciências Econômicas no presente momento, planeja iniciar a faculdade de Engenharia da Computação e uma pós-graduação no curso de Economia após a formatura, em 2026.
 
-## Tecnologias utilizadas
+## Skills
+
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260451543484993616/RevyKokoMeDespicable.jpg?ex=668f5e7a&is=668e0cfa&hm=85686e5a39c03ab17110493bf637dae0b23b29db022531a4f97c24f25e0529cb&=&format=webp&width=1025&height=280" />
 
 
