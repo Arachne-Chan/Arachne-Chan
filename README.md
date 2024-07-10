@@ -24,27 +24,3 @@ Cursando Ciências Econômicas no presente momento, planeja iniciar a faculdade 
 <a href="https://www.instagram.com/darlingmoon___/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
 <a href="https://open.spotify.com/playlist/55CbMzZ6OykcXclmkU0zZz" target="_blank"><img src="https://img.shields.io/badge/Spotify-%231ED760.svg?&style=flat-square&logo=spotify&logoColor=white" alt="Spotify"></a>
 <a href="https://github.com/HepoHB" target="_blank"><img src="https://img.shields.io/github/followers/HepoHB?style=social" alt="Github"></a>
-
-
-<img src="https://github-readme-streak-stats.herokuapp.com/?user=HepoHB&theme=tokyonight" alt="mystreak"/><img src="https://github-readme-stats.vercel.app/api/top-langs?username=HepoHB&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="ovi" />
-
-<a href="https://readme-jokes.vercel.app"><img align="center" src="https://readme-jokes.vercel.app/api" alt="README Jokes"></a>
-
-
-# There are people who are born with the function of moving the world, regardless of the position or social class determined by the laws of men. These people are the true elite created by the universal law, the true rulers blessed with the power of God! I want to know... What is my role in this world? Who am I and what am I capable of doing? What is the mission that has been given to me?
-
-
-<!--
-**Tchaikochan/Tchaikochan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
