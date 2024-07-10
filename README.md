@@ -8,7 +8,7 @@
 Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda a maternidade. Todos ficaram imediatamente encantados com tamanha perfeição, mal imaginando que esta bebê estava destinada a se tornar 𝐎 𝐀𝐧𝐭𝐢𝐜𝐫𝐢𝐬𝐭𝐨, 𝐎 𝐀𝐛𝐚𝐝𝐨𝐦, 𝐀 𝐃𝐞𝐬𝐭𝐫𝐮𝐢𝐝𝐨𝐫𝐚, ou apenas, 𝐍𝐞𝐫𝐨 𝐇𝐚𝐳𝐢𝐞𝐥, seu glorioso e majestoso nome.
 
 ## Educação
-Assim como boa ditadora intelectual, sua paixão pelas artes e ciências é notável, possuindo o sonho de realizar diversos cursos de nível superior ao longo da vida pelo puro hobby do aprendizado, mas buscando se especializar nas áreas de gestão e planejamento, em específicos àquelas que envolvem programação.
+Assim como boa ditadora e intelectual, sua paixão pelas artes e ciências é notável, possuindo o sonho de realizar diversos cursos de nível superior ao longo da vida pelo puro hobby do aprendizado, mas buscando se especializar nas áreas de gestão e planejamento, em específicos àquelas que envolvem programação e análise de dados.
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260426253068931134/TwilightBook.jpg?ex=668f46ec&is=668df56c&hm=0bde0fa5b73697a93f65ca3a2dee7d524d8c0652319c5f2a7a9e3a006a18a11e&=&format=webp&width=1025&height=280" />
 Cursando Ciências Econômicas no presente momento, planeja iniciar a faculdade de Engenharia da Computação e uma pós-graduação no curso de Economia após a formatura, em 2026.
 
@@ -25,83 +25,6 @@ Cursando Ciências Econômicas no presente momento, planeja iniciar a faculdade 
 <a href="https://open.spotify.com/playlist/55CbMzZ6OykcXclmkU0zZz" target="_blank"><img src="https://img.shields.io/badge/Spotify-%231ED760.svg?&style=flat-square&logo=spotify&logoColor=white" alt="Spotify"></a>
 <a href="https://github.com/HepoHB" target="_blank"><img src="https://img.shields.io/github/followers/HepoHB?style=social" alt="Github"></a>
 
-
-## Random Info
-
- <summary>Polemic Opinions</summary>
-  
-☐ Funny Valentine did nothing wrong<br />
-☐ 💗 Yotsuba > Miku >> Itsuki >>> Nino >>>>> Ichika<br />
-☐ 👼🏻 Kaworu >>>>>>>>>>>>>>>>>> Misato == Asuka == Rei<br />
-☐ 🎮 Computer >>> Microsoft >>> Sony >>> Nintendo >>> Others<br />
-☐ ⭐ Joseph > Josuke >> Jotaro > Johny >>> Jonathan >>> Giorno >>> Jolyne >>> Josuke II >>> Jodio<br />
-  
-</details>
-
-<details>
- <summary>Favorite Anime Openings</summary>
-  
-### 1º. Fate Last Encore Opening - Bright Burning Shout
-<a href="https://youtu.be/uuZKRK3IYFo" title="Bright Burning Shout"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641504771/video_to_markdown/images/youtube--uuZKRK3IYFo-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bright Burning Shout" /></a>
-  
-### 2º. Beastars Opening - Wild Side
-<a href="https://youtu.be/bgo9dJB_icw" title="Wild Side"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505419/video_to_markdown/images/youtube--bgo9dJB_icw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Wild Side" /></a>
-  
-### 3º. Berserk Opening - Tell me Why
-<a href="https://youtu.be/pOXMt5O4Ly4" title="Tell me Why"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505489/video_to_markdown/images/youtube--ocQ6PDiP014-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tell me Why" /></a>
-  
-### 4º. Rozen Maiden Träumend Opening - Seishoujo Ryouiki
-<a href="https://youtu.be/SuAm904-hNA" title="Seishoujo Ryouiki"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505816/video_to_markdown/images/youtube--SuAm904-hNA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Seishoujo Ryouiki" /></a>
-  
-### 5º. Attack on Titan Opening - My War
-<a href="https://youtu.be/Y-eoYLBbZOA" title="My War"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641505644/video_to_markdown/images/youtube--Y-eoYLBbZOA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="My War" /></a>
-  
-</details>
-
-<details>
- <summary>Favorite Anime Endings</summary>
-
-  ### 1º. Fate Last Encore Ending - Tsuki to Hanataba
-<a href="https://youtu.be/xbOeZg7J_Iw" title="Tsuki to Hanataba"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506010/video_to_markdown/images/youtube--xbOeZg7J_Iw-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Tsuki to Hanataba" /></a>
-  
-  ### 2º. Overlord Ending - LLL
-<a href="https://youtu.be/ChayFwyFvPk" title="LLL"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506157/video_to_markdown/images/youtube--ChayFwyFvPk-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="LLL" /></a>
-  
-  ### 3º. To Love-Ru Ending - Lucky Tune
-<a href="https://youtu.be/9ajSoFZ1BfI" title="Lucky Tune"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506270/video_to_markdown/images/youtube--9ajSoFZ1BfI-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Lucky Tune" /></a>
-  
-  ### 4º. Death Parade Ending - Last Theater
-<a href="https://youtu.be/fW0Jxf5SuRg" title="Last Theater"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506333/video_to_markdown/images/youtube--fW0Jxf5SuRg-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Last Theater" /></a>
-  
-  ### 5º. Soul Eater Ending - Bakusou Yumeuta
-<a href="https://youtu.be/6W1ajuerl6o" title="Bakusou Yumeuta"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506407/video_to_markdown/images/youtube--6W1ajuerl6o-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Bakusou Yumeuta" /></a>
-  
-</details>
-
-
-<details>
- <summary>Other Music</summary>
-
-  ### 1º. Requiem in D Minor - Wolfgang Amadeus Mozart
-<a href="https://youtu.be/sPlhKP0nZII" title="Requiem in D Minor"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641506842/video_to_markdown/images/youtube--sPlhKP0nZII-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Requiem in D Minor" /></a>
-  
-  ### 2º. Waltz of the Flowers - Piotr Ilitch Tchaikovski
-<a href="https://youtu.be/Kw0wLLVEMaA" title="Waltz of the Flowers"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507373/video_to_markdown/images/youtube--Kw0wLLVEMaA-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Waltz of the Flowers" /></a>
-    
-  ### 3º. Boulevard of Broken Dreams - Green Day
-<a href="https://youtu.be/Soa3gO7tL-c" title="Boulevard of Broken Dreams"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507313/video_to_markdown/images/youtube--Soa3gO7tL-c-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Boulevard of Broken Dreams" /></a>
-  
-  ### 4º. The Great Pretender - Freddie Mercury
-<a href="https://youtu.be/mLRjFWDGs1g" title="The Great Pretender"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507140/video_to_markdown/images/youtube--mLRjFWDGs1g-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="The Great Pretender" /></a>
-  
-  ### 5º. Echoes - Pink Floyd
-<a href="https://youtu.be/53N99Nim6WE" title="Echoes"><img src="https://res.cloudinary.com/marcomontalbano/image/upload/v1641507247/video_to_markdown/images/youtube--53N99Nim6WE-c05b58ac6eb4c4700831b2b3070cd403.jpg" alt="Echoes" /></a>
-  
-</details>
-
-<br />
-<br />
-<br />
 
 <img src="https://github-readme-streak-stats.herokuapp.com/?user=HepoHB&theme=tokyonight" alt="mystreak"/><img src="https://github-readme-stats.vercel.app/api/top-langs?username=HepoHB&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="ovi" />
 
