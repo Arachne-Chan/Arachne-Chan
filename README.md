@@ -6,42 +6,6 @@
 ## About me
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260393517931561002/MiuIrumaDespicable.jpg?ex=668f286f&is=668dd6ef&hm=4559755f5f98b47103433d93aa0b407abcc7bb5e28aeeb5f3bd57d28c7d0c97b&=&format=webp&width=1025&height=128">
 Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda a maternidade. Todos ficaram imediatamente encantados com tamanha perfeição, mal sabendo que esta bebê viria a se tornar um 𝐏𝐫𝐨𝐣𝐞𝐭𝐨 𝐝𝐞 𝐀𝐧𝐭𝐢𝐜𝐫𝐢𝐬𝐭𝐨.
-  - Country: 🇧🇷 Brazil
-  - Birthday: 🎂 2003/01/23
-  - Drinking: 🍺 No Drinking
-  - Smoking: 🚬 No Smoking
-  - Favorite Princess: 👑 Ariel
-  - Deathwish: 🪦 Be Cremated
-  - Pronouns: ♀️ She/Her/They
-  - Favorite Food: 🍨 Ice Cream
-  - Body Fat Percentage: 🗜️ 23%
-  - Astrological sign: ♒ Aquarius
-  - Favorite Videogame: 🕹️ Fortnite
-  - Favorite Music Genre: 🎼 Classical
-  - Favorite Singer: 🎤 Michael Jackson
-  - Favorite Movie: 🍿 A Clockwork Orange
-  - Favorite Book: 📚 The Screwtape Letters
-  - Favorite Cartoon: 🦄 My Little Pony FIM
-  - Favorite Band: 🎹 My Chemical Romance
-  - Logical or Creative: 💡 Both. Both is good
-  - Favorite Composer: 🎻 Piotr Ilitch Tchaikovski
-  - Favorite Anime: 🗻 Fate Stay/Night: Unlimited Blade Works
-  - Height: 👠 1,53m (5'1") of pure gorgeousness (I am not a loli, though)
-  - Personality: 🧠 The most extrovert INTJ, maybe the most introvert ENTJ
-  - Weight: ⚖️ 46kg (101.4 lb) of pure strength and beauty (ONEGAI MUSCLE!)
-  - Shoe size: 👢 Size 37/38 (For Brazilian Sizes. Approximately 24cm of foot size)
-  - Spoken languages: 🌎 Portuguese(+) / English(+) / Japanese(+) / Spanish(±) / Italian(±) / Chinese(-) / Latin(-)
-  - People I really respect: 💖 Leonardo di Ser Piero da Vinci || Wolfgang Amadeus Mozart || Myself (Self-love is Good)
-
-## Hobbies
-  - 📖 Read
-  - 💻 Code
-  - 📚 Study
-  - 🍨 Ice Cream
-  - 🤖 Electronics
-  - 🎎 Watch Anime
-  - 🕹 Play Videogames
-  - ☢️ Play with highly radioactive chemical compounds (Just joking, I Hope)
 
 ## Contacts
 
