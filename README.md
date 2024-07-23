@@ -1,4 +1,4 @@
-# 🖤 N̴͙̲̖̤̋̀̕͜ę̸̼͚͔̠͚́͘ͅr̴̡̢͈͚̟͜͝o̴̧̪̟̔͌́̅ ̷̟̍́̇͊"̷̤͎͚̝́͗M̸͂̈́̈̍̐̏ͅe̷̜̳̪̣͆̈́̓̓͌͘l̷̝̳̞͈̈́a̵̤͕̖̘̖̖̋͌͌̓̏n̵̲̤͔̅͂ḯ̷͈͙̥͓̊ḛ̶̣̩̠̀"̷̗̝͇̠͚͚͔̈̂̃̌ ̶͉̎̈́̎̈́ͅH̵̛̞̯͛̑͑͌̎͐a̵̦̱̤̩͇͕̅̈́́̐́̉͘ẓ̴͓͍͙̪̃̒͆ḯ̴̭̲̰̳̠͉̏̚e̷̯̩͚͒̔͌l̵̡̰̪̻͙͚̜̒̔̽́̓ 🖤
+# 🖤 N̸͊̊̋͜è̴͇̂r̵̟̽o̶̯̹͍͗̈́ ̴̣͚͚̂̚"̵͓̭͐M̷̙̙̖̅̔ȇ̷͇l̴̘̹͔͗a̵̤͎͠n̸͕̐̍̍ì̵̭é̸̳"̵̯͐ ̴̠̬͍̑̄͝H̸̼̙̍ȧ̶̧̦͓̆z̷̙̩͒͛ͅi̶̛͇͙͗e̷̮̮̭͒ḻ̵̡͚̏̾͆  🖤
 
 ## Contemple o perfil da nova reencarnação da Deusa das trevas!!
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260380679498109029/RaidenMeDespicable.jpg?ex=668f1c7a&is=668dcafa&hm=75c5c8ff15646ba039045dee4214e0136bacd62aaa420854c36e835e920a80c0&=&format=webp&width=1025&height=280" />
