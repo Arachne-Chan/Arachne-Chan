@@ -20,6 +20,7 @@ Buscando masterizar todas as habilidades necessárias para dominação mundial, 
 ## Contato
 
 - E-mail: HazielNero@gmail.com
+- Instagram: https://www.instagram.com/ndarlingmoon/
 - LinkeDisney: https://www.linkedin.com/in/nerohaziel/
 - Github: https://github.com/HepoHB (Você já não está aqui?)
 
