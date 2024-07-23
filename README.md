@@ -13,17 +13,15 @@ Assim como boa ditadora e intelectual, sua paixão pelas artes e ciências é no
 Cursando Ciências Econômicas no presente momento, planeja iniciar a faculdade de Engenharia da Computação e uma pós-graduação no curso de Economia após a formatura, em 2026.
 
 ## Skills
-
+Buscando masterizar todas as habilidades necessárias para dominação, nossa Deusa das Trevas está sempre em constante evolução e numa jornada eterna pelo aprendizado, sejam em habilidades técnicas ou interpessoais.
 <img src="https://media.discordapp.net/attachments/383377844849475585/1260451543484993616/RevyKokoMeDespicable.jpg?ex=668f5e7a&is=668e0cfa&hm=85686e5a39c03ab17110493bf637dae0b23b29db022531a4f97c24f25e0529cb&=&format=webp&width=1025&height=280" />
 
 
 ## Contato
 
-- https://bmc.link/Hepo
 - E-mail: HazielNero@gmail.com
-- E-mail: NeroHaziel@outlook.com
-- MyAnimeList: https://myanimelist.net/profile/Darling_Moon
-- Github: https://github.com/HepoHB (Aren't You already here?)
+- LinkeDisney: https://www.linkedin.com/in/nerohaziel/
+- Github: https://github.com/HepoHB (Você já não está aqui?)
 
 <a href="https://www.linkedin.com/in/nerohaziel/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
 <a href="https://www.instagram.com/darlingmoon___/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
