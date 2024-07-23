@@ -24,6 +24,6 @@ Buscando masterizar todas as habilidades necessárias para dominação mundial, 
 - Github: https://github.com/HepoHB (Você já não está aqui?)
 
 <a href="https://www.linkedin.com/in/nerohaziel/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
-<a href="https://www.instagram.com/darlingmoon___/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
+<a href="https://www.instagram.com/ndarlingmoon/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
 <a href="https://open.spotify.com/playlist/55CbMzZ6OykcXclmkU0zZz" target="_blank"><img src="https://img.shields.io/badge/Spotify-%231ED760.svg?&style=flat-square&logo=spotify&logoColor=white" alt="Spotify"></a>
 <a href="https://github.com/HepoHB" target="_blank"><img src="https://img.shields.io/github/followers/HepoHB?style=social" alt="Github"></a>
