@@ -4,7 +4,7 @@
 <img src="imagem_2024-09-04_192749900.png" />
 
 ## Sobre mim
-<img src="https://media.discordapp.net/attachments/383377844849475585/1260393517931561002/MiuIrumaDespicable.jpg?ex=66b75e2f&is=66b60caf&hm=722112a6211434d8fd3b5e28588587987159fa5729fcd899c93c7e372ad1ef5a&=&format=webp&width=1025&height=128" />
+<img src="imagem_2024-09-04_192839968.png" />
 Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda a maternidade. Todos ficaram imediatamente encantados com tamanha perfeição, mal imaginando que esta bebê estava destinada a se tornar 𝐎 𝐀𝐧𝐭𝐢𝐜𝐫𝐢𝐬𝐭𝐨, 𝐎 𝐀𝐛𝐚𝐝𝐨𝐦, 𝐀 𝐃𝐞𝐬𝐭𝐫𝐮𝐢𝐝𝐨𝐫𝐚, ou apenas, 𝐍𝐞𝐫𝐨 𝐇𝐚𝐳𝐢𝐞𝐥, seu glorioso e majestoso nome.
 
 ## Educação
