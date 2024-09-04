@@ -9,7 +9,7 @@ Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda 
 
 ## Educação
 Assim como boa ditadora e intelectual, sua paixão pelas artes e ciências é notável, possuindo o sonho de realizar diversos cursos de nível superior ao longo da vida pelo puro hobby do aprendizado, mas buscando se especializar nas áreas de gestão e planejamento, em específicos àquelas que envolvem programação e análise de dados.
-<img src="https://media.discordapp.net/attachments/383377844849475585/1260426253068931134/TwilightBook.jpg?ex=66b77cac&is=66b62b2c&hm=926bc64e837e00466cf20268a9e284c336cebdebc745261fd16e1ff5d6590912&=&format=webp&width=1025&height=280" />
+<img src="imagem_2024-09-04_192913690.png" />
 Cursando Ciências Econômicas no presente momento, planeja iniciar a faculdade de Engenharia da Computação e uma pós-graduação no curso de Economia após a formatura, em 2026.
 
 ## Skills
