@@ -14,7 +14,7 @@ Cursando Ciências Econômicas no presente momento, planeja iniciar a faculdade 
 
 ## Skills
 Buscando masterizar todas as habilidades necessárias para dominação mundial, nossa Deusa das Trevas está sempre em constante evolução e numa jornada eterna pelo aprendizado, sejam em habilidades técnicas ou interpessoais.
-<img src="https://media.discordapp.net/attachments/383377844849475585/1260451543484993616/RevyKokoMeDespicable.jpg?ex=66b7943a&is=66b642ba&hm=c19a62b0d4685fbde71a6866ccbbd979970b8e6c977bcff04ab23f7f1997f51f&=&format=webp&width=1025&height=280" />
+<img src="imagem_2024-09-04_193015821.png" />
 
 
 ## Contato
