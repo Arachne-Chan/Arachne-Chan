@@ -1,7 +1,7 @@
 # 🖤 Ṉ̵̢̫̝̱͌̑̓̎͘e̷̟̓̄̋r̵͓̟̪̂͆ǒ̴̧͓̬͓̮͐̈́  H̷̲͉͇̞͂͛͋a̸̛̝̪̬̽̅̄z̸̘̰̘͐͂̿͝͠i̸̫͉̦̅̒̀̂ě̷̛͖̺̾ļ̷̙͙̙͋̐͛ 🖤
 
 ## Contemple o perfil da nova reencarnação da Deusa das trevas!!
-<img src="imagem_2024-09-04_192749900.png" />
+<img src="FurinaGithub.png" />
 
 ## Sobre mim
 <img src="imagem_2024-09-04_192839968.png" />
