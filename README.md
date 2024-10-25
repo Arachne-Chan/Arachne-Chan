@@ -2,9 +2,6 @@
 
 ### The Almighty Sovereign of Bliss, The Overlady, The Supreme Governor of Passion, The Ruler of all Hugs 
 <img src="FurinaGithub.png" />
-
-## Sobre mim
-<img src="imagem_2024-09-04_192839968.png" />
 Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda a maternidade. Todos ficaram imediatamente encantados com tamanha perfeição, mal imaginando que esta bebê estava destinada a se tornar 𝐎 𝐀𝐧𝐭𝐢𝐜𝐫𝐢𝐬𝐭𝐨, 𝐎 𝐀𝐛𝐚𝐝𝐨𝐦, 𝐀 𝐃𝐞𝐬𝐭𝐫𝐮𝐢𝐝𝐨𝐫𝐚, ou apenas, 𝐍𝐞𝐫𝐨 𝐇𝐚𝐳𝐢𝐞𝐥, seu glorioso e majestoso nome.
 
 ## Educação
