@@ -2,7 +2,7 @@
 
 ### The Almighty Sovereign of Bliss, The Overlady, The Supreme Governor of Passion, The Ruler of all Hugs 
 <img src="FurinaGithub.png" />
-I, NERO HAZIEL, WILL USE THIS PORTFOLIO TO SHOW THE WORLD THE TRUE MEANING OF GENIUS!
+### I, NERO HAZIEL, WILL USE THIS PORTFOLIO TO SHOW THE WORLD THE TRUE MEANING OF GENIUS!
 
 ## Technologies
 ### Languages
