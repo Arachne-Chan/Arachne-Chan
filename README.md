@@ -1,6 +1,6 @@
 # 🖤 Ṉ̵̢̫̝̱͌̑̓̎͘e̷̟̓̄̋r̵͓̟̪̂͆ǒ̴̧͓̬͓̮͐̈́  H̷̲͉͇̞͂͛͋a̸̛̝̪̬̽̅̄z̸̘̰̘͐͂̿͝͠i̸̫͉̦̅̒̀̂ě̷̛͖̺̾ļ̷̙͙̙͋̐͛ 🖤
 
-## Contemple o perfil da nova reencarnação da Deusa das trevas!!
+## I'm singing in the rain, Just singin' in the rain!!!
 <img src="FurinaGithub.png" />
 
 ## Sobre mim
