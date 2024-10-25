@@ -2,7 +2,7 @@
 
 ### The Almighty Sovereign of Bliss, The Overlady, The Supreme Governor of Passion, The Ruler of all Hugs 
 <img src="FurinaGithub.png" />
-Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda a maternidade. Todos ficaram imediatamente encantados com tamanha perfeição, mal imaginando que esta bebê estava destinada a se tornar 𝐎 𝐀𝐧𝐭𝐢𝐜𝐫𝐢𝐬𝐭𝐨, 𝐎 𝐀𝐛𝐚𝐝𝐨𝐦, 𝐀 𝐃𝐞𝐬𝐭𝐫𝐮𝐢𝐝𝐨𝐫𝐚, ou apenas, 𝐍𝐞𝐫𝐨 𝐇𝐚𝐳𝐢𝐞𝐥, seu glorioso e majestoso nome.
+I, NERO HAZIEL, WILL USE THIS PORTFOLIO TO SHOW THE WORLD THE TRUE MEANING OF GENIUS!
 
 ## Technologies
 ### Languages
@@ -24,7 +24,7 @@ Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda 
 
 ## Social
 <a href="https://open.spotify.com/user/rnmdyh1dne48gnanz7zumaqq6?si=6722f1ba6eba4722" target="_blank" >![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=for-the-badge&logo=spotify&logoColor=white)</a>
-<a href="https://HazielNero@gmail.com" target="_blank">![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)</a>
+<a href="/HazielNero@gmail.com" target="_blank">![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)</a>
 <a href="https://www.instagram.com/ndarlingmoon/" target="_blank">![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?style=for-the-badge&logo=Instagram&logoColor=white)</a>
 <a href="https://www.linkedin.com/in/nerohaziel/" target="_blank">![LinkedIn](https://img.shields.io/badge/linkedin-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white)</a>
 <a href="https://br.pinterest.com/NDarlingMoon/" target="_blank">![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?style=for-the-badge&logo=Pinterest&logoColor=white)</a>
