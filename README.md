@@ -1,6 +1,6 @@
 # 🖤 Ṉ̵̢̫̝̱͌̑̓̎͘e̷̟̓̄̋r̵͓̟̪̂͆ǒ̴̧͓̬͓̮͐̈́  H̷̲͉͇̞͂͛͋a̸̛̝̪̬̽̅̄z̸̘̰̘͐͂̿͝͠i̸̫͉̦̅̒̀̂ě̷̛͖̺̾ļ̷̙͙̙͋̐͛ 🖤
 
-### The Almighty Sovereign of Bliss, The Overlady, The Supreme Governor of Passion, The Ruler of all Hugs and Kisses 
+### The Almighty Sovereign of Bliss, The Overlady, The Supreme Governor of Passion, The Ruler of all Hugs 
 <img src="FurinaGithub.png" />
 
 ## Sobre mim
