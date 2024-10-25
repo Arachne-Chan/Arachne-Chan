@@ -30,13 +30,8 @@ Buscando masterizar todas as habilidades necessárias para dominação mundial, 
 
 ## Contacts
 
-<a href="https://open.spotify.com/user/rnmdyh1dne48gnanz7zumaqq6?si=6722f1ba6eba4722" target=”_blank” >![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=for-the-badge&logo=spotify&logoColor=white)</a>
-<a href="HazielNero@gmail.com" target=”_blank”>![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)</a>
-- LinkeDisney: https://www.linkedin.com/in/nerohaziel/
-- Instagram: https://www.instagram.com/ndarlingmoon/
-- Github: https://github.com/HepoHB (Você já não está aqui?)
-
-<a href="https://www.linkedin.com/in/nerohaziel/" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white" alt="LinkedIn"></a>
-<a href="https://www.instagram.com/ndarlingmoon/" target="_blank"><img src="https://img.shields.io/badge/Instagram-%23E4405F.svg?&style=flat-square&logo=instagram&logoColor=white" alt="Instagram"></a>
-<a href="https://open.spotify.com/playlist/55CbMzZ6OykcXclmkU0zZz" target="_blank"><img src="https://img.shields.io/badge/Spotify-%231ED760.svg?&style=flat-square&logo=spotify&logoColor=white" alt="Spotify"></a>
-<a href="https://github.com/HepoHB" target="_blank"><img src="https://img.shields.io/github/followers/HepoHB?style=social" alt="Github"></a>
+<a href="https://open.spotify.com/user/rnmdyh1dne48gnanz7zumaqq6?si=6722f1ba6eba4722" target="_blank" >![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=for-the-badge&logo=spotify&logoColor=white)</a>
+<a href="HazielNero@gmail.com" target="_blank">![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)</a>
+<a href="https://www.instagram.com/ndarlingmoon/" target="_blank">![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?style=for-the-badge&logo=Instagram&logoColor=white)</a>
+<a href="https://www.linkedin.com/in/nerohaziel/" target="_blank">![LinkedIn](https://img.shields.io/badge/linkedin-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white)</a>
+<a href="https://github.com/HepoHB" target="_blank">![GitHub](https://img.shields.io/badge/github-%23121011.svg?style=for-the-badge&logo=github&logoColor=white)</a>
