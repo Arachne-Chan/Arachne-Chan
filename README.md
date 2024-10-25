@@ -37,3 +37,4 @@ Buscando masterizar todas as habilidades necessárias para dominação mundial, 
 <a href="https://github.com/HepoHB" target="_blank">![GitHub](https://img.shields.io/badge/github-%23121011.svg?style=for-the-badge&logo=github&logoColor=white)</a>
 <a href="https://br.pinterest.com/NDarlingMoon/" target="_blank">![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?style=for-the-badge&logo=Pinterest&logoColor=white)</a>
 <a href="https://www.youtube.com/@NDarlingMoon" target="_blank">![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?style=for-the-badge&logo=YouTube&logoColor=white)</a>
+<a href="https://discord.gg/pEgEPVcZmj" target="_blank">![Discord](https://img.shields.io/badge/Discord-%235865F2.svg?style=for-the-badge&logo=discord&logoColor=white)</a>
