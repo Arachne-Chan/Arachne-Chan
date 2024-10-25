@@ -30,8 +30,8 @@ Buscando masterizar todas as habilidades necessárias para dominação mundial, 
 
 ## Contacts
 
-<a href="https://open.spotify.com/user/rnmdyh1dne48gnanz7zumaqq6?si=6722f1ba6eba4722">![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=for-the-badge&logo=spotify&logoColor=white)</a>
-- E-mail: HazielNero@gmail.com
+<a href="https://open.spotify.com/user/rnmdyh1dne48gnanz7zumaqq6?si=6722f1ba6eba4722" target=”_blank” >![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=for-the-badge&logo=spotify&logoColor=white)</a>
+<a href="HazielNero@gmail.com" target=”_blank”>![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)</a>
 - LinkeDisney: https://www.linkedin.com/in/nerohaziel/
 - Instagram: https://www.instagram.com/ndarlingmoon/
 - Github: https://github.com/HepoHB (Você já não está aqui?)
