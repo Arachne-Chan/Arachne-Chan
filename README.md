@@ -21,12 +21,6 @@ Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda 
 
 ### Others
 <img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/docker/docker-original.svg" alt="Docker" width="7.5%"/><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/figma/figma-original.svg" alt="Figma" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/photoshop/photoshop-original.svg" alt="Photoshop" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/git/git-original.svg" alt="Git" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/jira/jira-original.svg" alt="Jira" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/trello/trello-original.svg" alt="Trello" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/maven/maven-original.svg" alt="Maven" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/postman/postman-original.svg" alt="Postman" width="7.5%" />
-          
-
-## Skills
-Buscando masterizar todas as habilidades necessárias para dominação mundial, nossa Deusa das Trevas está sempre em constante evolução e numa jornada eterna pelo aprendizado, sejam em habilidades técnicas ou interpessoais.
-<img src="imagem_2024-09-04_193015821.png" />
-
 
 ## Contacts
 
