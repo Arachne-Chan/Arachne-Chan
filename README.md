@@ -1,6 +1,6 @@
 # 🖤 Ṉ̵̢̫̝̱͌̑̓̎͘e̷̟̓̄̋r̵͓̟̪̂͆ǒ̴̧͓̬͓̮͐̈́  H̷̲͉͇̞͂͛͋a̸̛̝̪̬̽̅̄z̸̘̰̘͐͂̿͝͠i̸̫͉̦̅̒̀̂ě̷̛͖̺̾ļ̷̙͙̙͋̐͛ 🖤
 
-## The Bliss of Shadows
+## The Almighty Sovereign of Bliss
 <img src="FurinaGithub.png" />
 
 ## Sobre mim
