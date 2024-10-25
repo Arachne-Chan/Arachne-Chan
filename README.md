@@ -19,14 +19,8 @@ Nascida no dia 23 de Janeiro de 2003, certamente era a bebê mais linda de toda 
 <img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/mysql/mysql-original.svg" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/postgresql/postgresql-original.svg" width="7.5%" />
           
 
-### Other
+### Others
 <img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/docker/docker-original.svg" width="7.5%"/><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/figma/figma-original.svg" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/photoshop/photoshop-original.svg" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/git/git-original.svg" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/jira/jira-original.svg" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/trello/trello-original.svg" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/maven/maven-original.svg" width="7.5%" /><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/postman/postman-original.svg" width="7.5%" />
-          
-          
-          
-          
-          
-          
           
 
 ## Skills
@@ -34,8 +28,9 @@ Buscando masterizar todas as habilidades necessárias para dominação mundial, 
 <img src="imagem_2024-09-04_193015821.png" />
 
 
-## Contato
+## Contacts
 
+<a href="https://open.spotify.com/user/rnmdyh1dne48gnanz7zumaqq6?si=6722f1ba6eba4722">![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=for-the-badge&logo=spotify&logoColor=white)</a>
 - E-mail: HazielNero@gmail.com
 - LinkeDisney: https://www.linkedin.com/in/nerohaziel/
 - Instagram: https://www.instagram.com/ndarlingmoon/
