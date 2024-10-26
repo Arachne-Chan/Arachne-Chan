@@ -1,9 +1,9 @@
 # 🖤 Ṉ̵̢̫̝̱͌̑̓̎͘e̷̟̓̄̋r̵͓̟̪̂͆ǒ̴̧͓̬͓̮͐̈́  H̷̲͉͇̞͂͛͋a̸̛̝̪̬̽̅̄z̸̘̰̘͐͂̿͝͠i̸̫͉̦̅̒̀̂ě̷̛͖̺̾ļ̷̙͙̙͋̐͛ 🖤
 
-### The Almighty Sovereign of Bliss, The Overlady, The Supreme Governor of Passion, The Ruler of all Hugs 
 <img src="FurinaGithub.png" />
 
 ### I, NERO HAZIEL, WILL USE THIS PORTFOLIO TO SHOW THE WORLD THE TRUE MEANING OF GENIUS!
+/Enquanto não montei uma Bio, pense numa Bio tão legal quanto você!/
 
 ## Technologies
 ### Languages
