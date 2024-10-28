@@ -3,7 +3,9 @@
 <img src="FurinaGithub.png" />
 
 ### I, NERO HAZIEL, WILL USE THIS PORTFOLIO TO SHOW THE WORLD THE TRUE MEANING OF GENIUS!
-/Enquanto não montei uma Bio, pense numa Bio tão legal quanto você!/
+**Artist by Soul, Developer by Heart**. I'm a 21-year-old Brazilian in search of **Virtuosity**. Lemme talk about any topic for 10 minutes, and y'all will be impressed. Currently, I'm pursuing a Bachelor's in Economics and working with R, Python, and Java. PowerBI and Tableau are also tools I know and I'm on my way to reaching the **Pinnacle of Mastery**. BTW, feel free to chat with me about whatever you want—Genshin Impact, the Royal Opera and Ballet, or Black Metal, or books, or geography, maybe astronomy, even philosophy... I literally mean **ANYTHING**. Talk to me about **ANYTHING** and I will be madly happy to learn and teach.
+
+With a hint of flair and a touch of glamour, I say: XOXO, hugs and kisses. Thank You! Thank You!
 
 ## Technologies
 ### Languages
